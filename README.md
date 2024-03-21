@@ -1,2033 +1,998 @@
 
 
-
 <!doctype html>
-<html class="no-js" lang="en">
-  <head>
-    <meta charset="utf-8">
-    <meta http-equiv="X-UA-Compatible" content="IE=edge">
-    <meta name="viewport" content="width=device-width,initial-scale=1">
-    <meta name="theme-color" content="">
-    <link rel="canonical" href="http://raja33.hermanradtke.com/">
-    <link rel="amphtml" href="https://bestairjordan11retro.com/ampgacor33/index.html">
-    <meta name="google-site-verification" content="EDWyJm184EXB6r9448YlRMxyIW3XVYFZzu6Fk1JvZ0s" /><link rel="preconnect" href="https://fonts.shopifycdn.com" crossorigin><title>
-      Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024
- &ndash; Rajajudi33</title>
-
-    
-      <meta name="description" content="Rajajudi33 merupakan salah satu rekomendasi situs slot gacor resmi yang paling populer tahun 2024, Rajajudi33 menyediakan game slot online gampang menang malam ini dengan tingkat kemenangan paling tinggi.">
-    
-
-    
-
-<meta property="og:site_name" content="Rajajudi33">
-<meta property="og:url" content="https://3dd60a-f6.myshopify.com/products/Rajajudi33">
-<meta property="og:title" content="Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024">
-<meta property="og:type" content="product">
-<meta property="og:description" content="Rajajudi33 merupakan salah satu rekomendasi situs slot gacor resmi yang paling populer tahun 2024, Rajajudi33 menyediakan game slot online gampang menang malam ini dengan tingkat kemenangan paling tinggi."><meta property="og:image" content="http://3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971">
-  <meta property="og:image:secure_url" content="https://3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971">
-  <meta property="og:image:width" content="600">
-  <meta property="og:image:height" content="600"><meta property="og:price:amount" content="0.00">
-  <meta property="og:price:currency" content="AUD"><meta name="twitter:card" content="summary_large_image">
-<meta name="twitter:title" content="Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024">
-<meta name="twitter:description" content="Rajajudi33 merupakan salah satu rekomendasi situs slot gacor resmi yang paling populer tahun 2024, Rajajudi33 menyediakan game slot online gampang menang malam ini dengan tingkat kemenangan paling tinggi.">
-
-
-    <script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/constants.js?v=58251544750838685771710963316" defer="defer"></script>
-    <script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/pubsub.js?v=158357773527763999511710963316" defer="defer"></script>
-    <script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/global.js?v=37284204640041572741710963316" defer="defer"></script><script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/animations.js?v=88693664871331136111710963315" defer="defer"></script><script>window.performance && window.performance.mark && window.performance.mark('shopify.content_for_header.start');</script><meta id="shopify-digital-wallet" name="shopify-digital-wallet" content="/69522784506/digital_wallets/dialog">
-<meta name="shopify-checkout-api-token" content="d861992cab46b50c07b5f90ad817037c">
-<meta id="in-context-paypal-metadata" data-shop-id="69522784506" data-venmo-supported="false" data-environment="production" data-locale="en_US" data-paypal-v4="true" data-currency="AUD">
-<link rel="alternate" type="application/json+oembed" href="https://3dd60a-f6.myshopify.com/products/Rajajudi33.oembed">
-<script async="async" src="/checkouts/internal/preloads.js?locale=en-AU"></script>
-<script async="async" src="https://shop.app/checkouts/internal/preloads.js?locale=en-AU&shop_id=69522784506" crossorigin="anonymous"></script>
-<script id="shopify-features" type="application/json">{"accessToken":"d861992cab46b50c07b5f90ad817037c","betas":["rich-media-storefront-analytics"],"domain":"3dd60a-f6.myshopify.com","predictiveSearch":true,"shopId":69522784506,"smart_payment_buttons_url":"https:\/\/3dd60a-f6.myshopify.com\/cdn\/shopifycloud\/payment-sheet\/assets\/latest\/spb.en.js","dynamic_checkout_cart_url":"https:\/\/3dd60a-f6.myshopify.com\/cdn\/shopifycloud\/payment-sheet\/assets\/latest\/dynamic-checkout-cart.en.js","dynamic_checkout_cart_button_sizes":{"maxWidth":500,"minWidth":140},"locale":"en","flg4ff40b22":false}</script>
-<script>var Shopify = Shopify || {};
-Shopify.shop = "3dd60a-f6.myshopify.com";
-Shopify.locale = "en";
-Shopify.currency = {"active":"AUD","rate":"1.0"};
-Shopify.country = "AU";
-Shopify.theme = {"name":"Dawn","id":141129056506,"theme_store_id":887,"role":"main"};
-Shopify.theme.handle = "null";
-Shopify.theme.style = {"id":null,"handle":null};
-Shopify.cdnHost = "3dd60a-f6.myshopify.com/cdn";
-Shopify.routes = Shopify.routes || {};
-Shopify.routes.root = "/";</script>
-<script type="module">!function(o){(o.Shopify=o.Shopify||{}).modules=!0}(window);</script>
-<script>!function(o){function n(){var o=[];function n(){o.push(Array.prototype.slice.apply(arguments))}return n.q=o,n}var t=o.Shopify=o.Shopify||{};t.loadFeatures=n(),t.autoloadFeatures=n()}(window);</script>
-<script id="__st">var __st={"a":69522784506,"offset":39600,"reqid":"a389eccc-997e-4fab-8036-5ee8c9e1d1b9-1710964434","pageurl":"3dd60a-f6.myshopify.com\/products\/Rajajudi33","u":"3348252add26","p":"product","rtyp":"product","rid":8231701840122};</script>
-<script>window.ShopifyPaypalV4VisibilityTracking = true;</script>
-<script>!function(o){o.addEventListener("DOMContentLoaded",function(){window.Shopify=window.Shopify||{},window.Shopify.recaptchaV3=window.Shopify.recaptchaV3||{siteKey:"6LeHG2ApAAAAAO4rPaDW-qVpPKPOBfjbCpzJB9ey"};var t=['form[action*="/contact"] input[name="form_type"][value="contact"]','form[action*="/comments"] input[name="form_type"][value="new_comment"]','form[action*="/account"] input[name="form_type"][value="customer_login"]','form[action*="/account"] input[name="form_type"][value="recover_customer_password"]','form[action*="/account"] input[name="form_type"][value="create_customer"]','form[action*="/contact"] input[name="form_type"][value="customer"]'].join(",");function n(e){e=e.target;null==e||null!=(e=function e(t,n){if(null==t.parentElement)return null;if("FORM"!=t.parentElement.tagName)return e(t.parentElement,n);for(var o=t.parentElement.action,r=0;r<n.length;r++)if(-1!==o.indexOf(n[r]))return t.parentElement;return null}(e,["/contact","/comments","/account"]))&&null!=e.querySelector(t)&&((e=o.createElement("script")).setAttribute("src","https://cdn.shopify.com/shopifycloud/storefront-recaptcha-v3/v0.6/index.js"),o.body.appendChild(e),o.removeEventListener("focus",n,!0),o.removeEventListener("change",n,!0),o.removeEventListener("click",n,!0))}o.addEventListener("click",n,!0),o.addEventListener("change",n,!0),o.addEventListener("focus",n,!0)})}(document);</script>
-<script>document.addEventListener('DOMContentLoaded', function() {
-  const adminBarInjector = new Shopify.AdminBarInjector({
-    targetNode: document.body,
-    iframeSrc: 'https://3dd60a-f6.myshopify.com/admin/bar?action_name=products&handle=Rajajudi33&path=%2Fproducts%2FRajajudi33&storefront_country=AU&storefront_locale=en',
-    permanentDomain: '3dd60a-f6.myshopify.com',
-  });
-
-  adminBarInjector.init();
-});</script>
-<script integrity="sha256-n5Uet9jVOXPHGd4hH4B9Y6+BxkTluaaucmYaxAjUcvY=" data-source-attribution="shopify.loadfeatures" defer="defer" src="//3dd60a-f6.myshopify.com/cdn/shopifycloud/shopify/assets/storefront/load_feature-9f951eb7d8d53973c719de211f807d63af81c644e5b9a6ae72661ac408d472f6.js" crossorigin="anonymous"></script>
-<script integrity="sha256-HAs5a9TQVLlKuuHrahvWuke+s1UlxXohfHeoYv8G2D8=" data-source-attribution="shopify.dynamic-checkout" defer="defer" src="//3dd60a-f6.myshopify.com/cdn/shopifycloud/shopify/assets/storefront/features-1c0b396bd4d054b94abae1eb6a1bd6ba47beb35525c57a217c77a862ff06d83f.js" crossorigin="anonymous"></script>
-<script integrity="sha256-hovSIckfTy8h/WLdxqPuYaDPq406ImzRTBZYjGAxaII=" defer="defer" src="//3dd60a-f6.myshopify.com/cdn/shopifycloud/shopify/assets/storefront/bars/admin_bar_injector-868bd221c91f4f2f21fd62ddc6a3ee61a0cfab8d3a226cd14c16588c60316882.js" crossorigin="anonymous"></script>
-<script id="sections-script" data-sections="header" defer="defer" src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/compiled_assets/scripts.js?3"></script>
-<style id="shopify-dynamic-checkout">.shopify-payment-button__button--hidden {
-  visibility: hidden;
-}
-
-.shopify-payment-button__button {
-  border-radius: 4px;
-  border: none;
-  box-shadow: 0 0 0 0 transparent;
-  color: white;
-  cursor: pointer;
-  display: block;
-  font-size: 1em;
-  font-weight: 500;
-  line-height: 1;
-  text-align: center;
-  width: 100%;
-  height: 44px;
-  transition: background 0.2s ease-in-out;
-}
-
-.shopify-payment-button__button[disabled] {
-  opacity: 0.6;
-  cursor: default;
-}
-
-.shopify-payment-button__button--unbranded {
-  background-color: #1990c6;
-  padding: 1em 2em;
-}
-
-.shopify-payment-button__button--unbranded:hover:not([disabled]) {
-  background-color: #136f99;
-}
-
-.shopify-payment-button__more-options {
-  background: transparent;
-  border: 0 none;
-  cursor: pointer;
-  display: block;
-  font-size: 1em;
-  margin-top: 1em;
-  text-align: center;
-  width: 100%;
-}
-
-.shopify-payment-button__more-options:hover:not([disabled]) {
-  text-decoration: underline;
-}
-
-.shopify-payment-button__more-options[disabled] {
-  opacity: 0.6;
-  cursor: not-allowed;
-}
-
-.shopify-payment-button__button--branded {
-  display: flex;
-  flex-direction: column;
-  position: relative;
-  z-index: 1;
-}
-
-.shopify-payment-button__button--branded .shopify-cleanslate {
-  flex: 1 !important;
-  display: flex !important;
-  flex-direction: column !important;
-}
-
-.shopify-payment-button__button.button.loading {
-  position: relative;
-  color: transparent;
-}
-
-.shopify-payment-button__button.button.loading > .loading-overlay__spinner {
-  top: 50%;
-  left: 50%;
-  transform: translate(-50%, -50%);
-  position: absolute;
-  height: 100%;
-  display: flex;
-  align-items: center;
-}
-
-.shopify-payment-button__button.button.loading > .loading-overlay__spinner .spinner {
-  width: -moz-fit-content;
-  width: -webkit-fit-content;
-  width: fit-content;
-}
-
-.button.loading > .loading-overlay__spinner .path {
-  stroke: white;
-}
-
-.shopify-payment-button__button .loading-overlay__spinner {
-  width: 1.8rem;
-  display: inline-block;
-}
-
-.shopify-payment-button__button .spinner {
-  animation: shopify-rotator 1.4s linear infinite;
-}
-
-@keyframes shopify-rotator {
-  0% {
-    transform: rotate(0deg);
-  }
-  100% {
-    transform: rotate(270deg);
-  }
-}
-
-.shopify-payment-button__button .path {
-  stroke-dasharray: 280;
-  stroke-dashoffset: 0;
-  transform-origin: center;
-  stroke: rgb(18,18,18);
-  animation: shopify-dash 1.4s ease-in-out infinite;
-}
-
-@media screen and (forced-colors: active) {
-  .shopify-payment-button__button .path{
-    stroke: CanvasText;
-  }
-}
-
-@keyframes shopify-dash {
-  0% {
-    stroke-dashoffset: 280;
-  }
-  50% {
-    stroke-dashoffset: 75;
-    transform: rotate(135deg);
-  }
-  100% {
-    stroke-dashoffset: 280;
-    transform: rotate(450deg);
-  }
-}
-</style>
-<style id="shopify-dynamic-checkout-cart">@media screen and (min-width: 750px) {
-  #dynamic-checkout-cart {
-    min-height: 50px;
-  }
-}
-
-@media screen and (max-width: 750px) {
-  #dynamic-checkout-cart {
-    min-height: 60px;
-  }
-}
-</style><script>window.performance && window.performance.mark && window.performance.mark('shopify.content_for_header.end');</script>
-
-
-    <style data-shopify>
-      @font-face {
-  font-family: Assistant;
-  font-weight: 400;
-  font-style: normal;
-  font-display: swap;
-  src: url("//3dd60a-f6.myshopify.com/cdn/fonts/assistant/assistant_n4.bcd3d09dcb631dec5544b8fb7b154ff234a44630.woff2?h1=M2RkNjBhLWY2LmFjY291bnQubXlzaG9waWZ5LmNvbQ&hmac=f7fa6e37c493c24fad14ecc84bc8f6439a72756a2c4a2a8b9cd07a4a48e0092b") format("woff2"),
-       url("//3dd60a-f6.myshopify.com/cdn/fonts/assistant/assistant_n4.a2d012304becc2a26f1ded1acc136fcab85c9afd.woff?h1=M2RkNjBhLWY2LmFjY291bnQubXlzaG9waWZ5LmNvbQ&hmac=888239cf73b32fe88c24463550154b15eea30d485cb29cf8869346b67838e3a0") format("woff");
-}
-
-      @font-face {
-  font-family: Assistant;
-  font-weight: 700;
-  font-style: normal;
-  font-display: swap;
-  src: url("//3dd60a-f6.myshopify.com/cdn/fonts/assistant/assistant_n7.3335c7bdaddf2501ddab87cdbd9be98f3870e10d.woff2?h1=M2RkNjBhLWY2LmFjY291bnQubXlzaG9waWZ5LmNvbQ&hmac=83bf3bd83b57edff3071f73e8dc1a0bb089a5366a130fdc121eaa7ccfa57ddb4") format("woff2"),
-       url("//3dd60a-f6.myshopify.com/cdn/fonts/assistant/assistant_n7.7c85f5c5cc1555de92cc7ef2790ee3cffe5237f5.woff?h1=M2RkNjBhLWY2LmFjY291bnQubXlzaG9waWZ5LmNvbQ&hmac=c32a7e200286f46720476e760444084868cb33971bacfeb7700962c531411502") format("woff");
-}
-
-      
-      
-      @font-face {
-  font-family: Assistant;
-  font-weight: 400;
-  font-style: normal;
-  font-display: swap;
-  src: url("//3dd60a-f6.myshopify.com/cdn/fonts/assistant/assistant_n4.bcd3d09dcb631dec5544b8fb7b154ff234a44630.woff2?h1=M2RkNjBhLWY2LmFjY291bnQubXlzaG9waWZ5LmNvbQ&hmac=f7fa6e37c493c24fad14ecc84bc8f6439a72756a2c4a2a8b9cd07a4a48e0092b") format("woff2"),
-       url("//3dd60a-f6.myshopify.com/cdn/fonts/assistant/assistant_n4.a2d012304becc2a26f1ded1acc136fcab85c9afd.woff?h1=M2RkNjBhLWY2LmFjY291bnQubXlzaG9waWZ5LmNvbQ&hmac=888239cf73b32fe88c24463550154b15eea30d485cb29cf8869346b67838e3a0") format("woff");
-}
-
-
-      
-        :root,
-        .color-scheme-1 {
-          --color-background: 255,255,255;
-        
-          --gradient-background: #FFFFFF;
-        
-
-        
-
-        --color-foreground: 18,18,18;
-        --color-background-contrast: 191,191,191;
-        --color-shadow: 18,18,18;
-        --color-button: 18,18,18;
-        --color-button-text: 255,255,255;
-        --color-secondary-button: 255,255,255;
-        --color-secondary-button-text: 18,18,18;
-        --color-link: 18,18,18;
-        --color-badge-foreground: 18,18,18;
-        --color-badge-background: 255,255,255;
-        --color-badge-border: 18,18,18;
-        --payment-terms-background-color: rgb(255 255 255);
-      }
-      
-        
-        .color-scheme-2 {
-          --color-background: 243,243,243;
-        
-          --gradient-background: #F3F3F3;
-        
-
-        
-
-        --color-foreground: 18,18,18;
-        --color-background-contrast: 179,179,179;
-        --color-shadow: 18,18,18;
-        --color-button: 18,18,18;
-        --color-button-text: 243,243,243;
-        --color-secondary-button: 243,243,243;
-        --color-secondary-button-text: 18,18,18;
-        --color-link: 18,18,18;
-        --color-badge-foreground: 18,18,18;
-        --color-badge-background: 243,243,243;
-        --color-badge-border: 18,18,18;
-        --payment-terms-background-color: rgb(243 243 243);
-      }
-      
-        
-        .color-scheme-3 {
-          --color-background: 36,40,51;
-        
-          --gradient-background: #242833;
-        
-
-        
-
-        --color-foreground: 255,255,255;
-        --color-background-contrast: 47,52,66;
-        --color-shadow: 18,18,18;
-        --color-button: 255,255,255;
-        --color-button-text: 0,0,0;
-        --color-secondary-button: 36,40,51;
-        --color-secondary-button-text: 255,255,255;
-        --color-link: 255,255,255;
-        --color-badge-foreground: 255,255,255;
-        --color-badge-background: 36,40,51;
-        --color-badge-border: 255,255,255;
-        --payment-terms-background-color: rgb(36 40 51);
-      }
-      
-        
-        .color-scheme-4 {
-          --color-background: 18,18,18;
-        
-          --gradient-background: #121212;
-        
-
-        
-
-        --color-foreground: 255,255,255;
-        --color-background-contrast: 146,146,146;
-        --color-shadow: 18,18,18;
-        --color-button: 255,255,255;
-        --color-button-text: 18,18,18;
-        --color-secondary-button: 18,18,18;
-        --color-secondary-button-text: 255,255,255;
-        --color-link: 255,255,255;
-        --color-badge-foreground: 255,255,255;
-        --color-badge-background: 18,18,18;
-        --color-badge-border: 255,255,255;
-        --payment-terms-background-color: rgb(18 18 18);
-      }
-      
-        
-        .color-scheme-5 {
-          --color-background: 51,79,180;
-        
-          --gradient-background: #334FB4;
-        
-
-        
-
-        --color-foreground: 255,255,255;
-        --color-background-contrast: 23,35,81;
-        --color-shadow: 18,18,18;
-        --color-button: 255,255,255;
-        --color-button-text: 51,79,180;
-        --color-secondary-button: 51,79,180;
-        --color-secondary-button-text: 255,255,255;
-        --color-link: 255,255,255;
-        --color-badge-foreground: 255,255,255;
-        --color-badge-background: 51,79,180;
-        --color-badge-border: 255,255,255;
-        --payment-terms-background-color: rgb(51 79 180);
-      }
-      
-
-      body, .color-scheme-1, .color-scheme-2, .color-scheme-3, .color-scheme-4, .color-scheme-5 {
-        color: rgba(var(--color-foreground), 0.75);
-        background-color: rgb(var(--color-background));
-      }
-
-      :root {
-        --font-body-family: Assistant, sans-serif;
-        --font-body-style: normal;
-        --font-body-weight: 400;
-        --font-body-weight-bold: 700;
-
-        --font-heading-family: Assistant, sans-serif;
-        --font-heading-style: normal;
-        --font-heading-weight: 400;
-
-        --font-body-scale: 1.0;
-        --font-heading-scale: 1.0;
-
-        --media-padding: px;
-        --media-border-opacity: 0.05;
-        --media-border-width: 1px;
-        --media-radius: 0px;
-        --media-shadow-opacity: 0.0;
-        --media-shadow-horizontal-offset: 0px;
-        --media-shadow-vertical-offset: 4px;
-        --media-shadow-blur-radius: 5px;
-        --media-shadow-visible: 0;
-
-        --page-width: 120rem;
-        --page-width-margin: 0rem;
-
-        --product-card-image-padding: 0.0rem;
-        --product-card-corner-radius: 0.0rem;
-        --product-card-text-alignment: left;
-        --product-card-border-width: 0.0rem;
-        --product-card-border-opacity: 0.1;
-        --product-card-shadow-opacity: 0.0;
-        --product-card-shadow-visible: 0;
-        --product-card-shadow-horizontal-offset: 0.0rem;
-        --product-card-shadow-vertical-offset: 0.4rem;
-        --product-card-shadow-blur-radius: 0.5rem;
-
-        --collection-card-image-padding: 0.0rem;
-        --collection-card-corner-radius: 0.0rem;
-        --collection-card-text-alignment: left;
-        --collection-card-border-width: 0.0rem;
-        --collection-card-border-opacity: 0.1;
-        --collection-card-shadow-opacity: 0.0;
-        --collection-card-shadow-visible: 0;
-        --collection-card-shadow-horizontal-offset: 0.0rem;
-        --collection-card-shadow-vertical-offset: 0.4rem;
-        --collection-card-shadow-blur-radius: 0.5rem;
-
-        --blog-card-image-padding: 0.0rem;
-        --blog-card-corner-radius: 0.0rem;
-        --blog-card-text-alignment: left;
-        --blog-card-border-width: 0.0rem;
-        --blog-card-border-opacity: 0.1;
-        --blog-card-shadow-opacity: 0.0;
-        --blog-card-shadow-visible: 0;
-        --blog-card-shadow-horizontal-offset: 0.0rem;
-        --blog-card-shadow-vertical-offset: 0.4rem;
-        --blog-card-shadow-blur-radius: 0.5rem;
-
-        --badge-corner-radius: 4.0rem;
-
-        --popup-border-width: 1px;
-        --popup-border-opacity: 0.1;
-        --popup-corner-radius: 0px;
-        --popup-shadow-opacity: 0.05;
-        --popup-shadow-horizontal-offset: 0px;
-        --popup-shadow-vertical-offset: 4px;
-        --popup-shadow-blur-radius: 5px;
-
-        --drawer-border-width: 1px;
-        --drawer-border-opacity: 0.1;
-        --drawer-shadow-opacity: 0.0;
-        --drawer-shadow-horizontal-offset: 0px;
-        --drawer-shadow-vertical-offset: 4px;
-        --drawer-shadow-blur-radius: 5px;
-
-        --spacing-sections-desktop: 0px;
-        --spacing-sections-mobile: 0px;
-
-        --grid-desktop-vertical-spacing: 8px;
-        --grid-desktop-horizontal-spacing: 8px;
-        --grid-mobile-vertical-spacing: 4px;
-        --grid-mobile-horizontal-spacing: 4px;
-
-        --text-boxes-border-opacity: 0.1;
-        --text-boxes-border-width: 0px;
-        --text-boxes-radius: 0px;
-        --text-boxes-shadow-opacity: 0.0;
-        --text-boxes-shadow-visible: 0;
-        --text-boxes-shadow-horizontal-offset: 0px;
-        --text-boxes-shadow-vertical-offset: 4px;
-        --text-boxes-shadow-blur-radius: 5px;
-
-        --buttons-radius: 0px;
-        --buttons-radius-outset: 0px;
-        --buttons-border-width: 1px;
-        --buttons-border-opacity: 1.0;
-        --buttons-shadow-opacity: 0.0;
-        --buttons-shadow-visible: 0;
-        --buttons-shadow-horizontal-offset: 0px;
-        --buttons-shadow-vertical-offset: 4px;
-        --buttons-shadow-blur-radius: 5px;
-        --buttons-border-offset: 0px;
-
-        --inputs-radius: 0px;
-        --inputs-border-width: 1px;
-        --inputs-border-opacity: 0.55;
-        --inputs-shadow-opacity: 0.0;
-        --inputs-shadow-horizontal-offset: 0px;
-        --inputs-margin-offset: 0px;
-        --inputs-shadow-vertical-offset: 4px;
-        --inputs-shadow-blur-radius: 5px;
-        --inputs-radius-outset: 0px;
-
-        --variant-pills-radius: 40px;
-        --variant-pills-border-width: 1px;
-        --variant-pills-border-opacity: 0.55;
-        --variant-pills-shadow-opacity: 0.0;
-        --variant-pills-shadow-horizontal-offset: 0px;
-        --variant-pills-shadow-vertical-offset: 4px;
-        --variant-pills-shadow-blur-radius: 5px;
-      }
-
-      *,
-      *::before,
-      *::after {
-        box-sizing: inherit;
-      }
-
-      html {
-        box-sizing: border-box;
-        font-size: calc(var(--font-body-scale) * 62.5%);
-        height: 100%;
-      }
-
-      body {
-        display: grid;
-        grid-template-rows: auto auto 1fr auto;
-        grid-template-columns: 100%;
-        min-height: 100%;
-        margin: 0;
-        font-size: 1.5rem;
-        letter-spacing: 0.06rem;
-        line-height: calc(1 + 0.8 / var(--font-body-scale));
-        font-family: var(--font-body-family);
-        font-style: var(--font-body-style);
-        font-weight: var(--font-body-weight);
-      }
-
-      @media screen and (min-width: 750px) {
-        body {
-          font-size: 1.6rem;
-        }
-      }
-    </style>
-
-    <link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/base.css?v=93405971894151239851710963315" rel="stylesheet" type="text/css" media="all" />
-<link rel="preload" as="font" href="//3dd60a-f6.myshopify.com/cdn/fonts/assistant/assistant_n4.bcd3d09dcb631dec5544b8fb7b154ff234a44630.woff2?h1=M2RkNjBhLWY2LmFjY291bnQubXlzaG9waWZ5LmNvbQ&hmac=f7fa6e37c493c24fad14ecc84bc8f6439a72756a2c4a2a8b9cd07a4a48e0092b" type="font/woff2" crossorigin><link rel="preload" as="font" href="//3dd60a-f6.myshopify.com/cdn/fonts/assistant/assistant_n4.bcd3d09dcb631dec5544b8fb7b154ff234a44630.woff2?h1=M2RkNjBhLWY2LmFjY291bnQubXlzaG9waWZ5LmNvbQ&hmac=f7fa6e37c493c24fad14ecc84bc8f6439a72756a2c4a2a8b9cd07a4a48e0092b" type="font/woff2" crossorigin><link
-        rel="stylesheet"
-        href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-predictive-search.css?v=118923337488134913561710963316"
-        media="print"
-        onload="this.media='all'"
-      ><script>
-      document.documentElement.className = document.documentElement.className.replace('no-js', 'js');
-      if (Shopify.designMode) {
-        document.documentElement.classList.add('shopify-design-mode');
-      }
-    </script>
-  <link href="https://monorail-edge.shopifysvc.com" rel="dns-prefetch">
-<script>(function(){if ("sendBeacon" in navigator && "performance" in window) {var session_token = document.cookie.match(/_shopify_s=([^;]*)/);function handle_abandonment_event(e) {var entries = performance.getEntries().filter(function(entry) {return /monorail-edge.shopifysvc.com/.test(entry.name);});if (!window.abandonment_tracked && entries.length === 0) {window.abandonment_tracked = true;var currentMs = Date.now();var navigation_start = performance.timing.navigationStart;var payload = {shop_id: 69522784506,url: window.location.href,navigation_start,duration: currentMs - navigation_start,session_token: session_token && session_token.length === 2 ? session_token[1] : "",page_type: "product"};window.navigator.sendBeacon("https://monorail-edge.shopifysvc.com/v1/produce", JSON.stringify({schema_id: "online_store_buyer_site_abandonment/1.1",payload: payload,metadata: {event_created_at_ms: currentMs,event_sent_at_ms: currentMs}}));}}window.addEventListener('pagehide', handle_abandonment_event);}}());</script>
-<script id="web-pixels-manager-setup">(function e(e,n,a,t,r){var o="function"==typeof BigInt&&-1!==BigInt.toString().indexOf("[native code]")?"modern":"legacy";window.Shopify=window.Shopify||{};var i=window.Shopify;i.analytics=i.analytics||{};var s=i.analytics;s.replayQueue=[],s.publish=function(e,n,a){return s.replayQueue.push([e,n,a]),!0};try{self.performance.mark("wpm:start")}catch(e){}var l=[a,"/wpm","/b",r,o.substring(0,1),".js"].join("");!function(e){var n=e.src,a=e.async,t=void 0===a||a,r=e.onload,o=e.onerror,i=document.createElement("script"),s=document.head,l=document.body;i.async=t,i.src=n,r&&i.addEventListener("load",r),o&&i.addEventListener("error",o),s?s.appendChild(i):l?l.appendChild(i):console.error("Did not find a head or body element to append the script")}({src:l,async:!0,onload:function(){var a=window.webPixelsManager.init(e);n(a);var t=window.Shopify.analytics;t.replayQueue.forEach((function(e){var n=e[0],t=e[1],r=e[2];a.publishCustomEvent(n,t,r)})),t.replayQueue=[],t.publish=a.publishCustomEvent,t.visitor=a.visitor},onerror:function(){var n=e.storefrontBaseUrl.replace(/\/$/,""),a="".concat(n,"/.well-known/shopify/monorail/unstable/produce_batch"),r=JSON.stringify({metadata:{event_sent_at_ms:(new Date).getTime()},events:[{schema_id:"web_pixels_manager_load/2.0",payload:{version:t||"latest",page_url:self.location.href,status:"failed",error_msg:"".concat(l," has failed to load")},metadata:{event_created_at_ms:(new Date).getTime()}}]});try{if(self.navigator.sendBeacon.bind(self.navigator)(a,r))return!0}catch(e){}var o=new XMLHttpRequest;try{return o.open("POST",a,!0),o.setRequestHeader("Content-Type","text/plain"),o.send(r),!0}catch(e){console&&console.warn&&console.warn("[Web Pixels Manager] Got an unhandled error while logging a load error.")}return!1}})})({shopId: 69522784506,storefrontBaseUrl: "https://3dd60a-f6.myshopify.com",cdnBaseUrl: "https://3dd60a-f6.myshopify.com/cdn",surface: "storefront-renderer",enabledBetaFlags: [],webPixelsConfigList: [{"id":"shopify-app-pixel","configuration":"{}","eventPayloadVersion":"v1","runtimeContext":"STRICT","scriptVersion":"0575","apiClientId":"shopify-pixel","type":"APP","purposes":["ANALYTICS"]},{"id":"shopify-custom-pixel","eventPayloadVersion":"v1","runtimeContext":"LAX","scriptVersion":"0575","apiClientId":"shopify-pixel","type":"CUSTOM","purposes":["ANALYTICS"]}],initData: {"cart":null,"checkout":null,"customer":null,"productVariants":[{"id":"45378775974138","image":{"src":"\/\/3dd60a-f6.myshopify.com\/cdn\/shop\/files\/sctr-hitam.jpg?v=1710963971"},"price":{"amount":0.0,"currencyCode":"AUD"},"product":{"id":"8231701840122","title":"Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024","untranslatedTitle":"Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024","url":"\/products\/Rajajudi33","vendor":"My Store","type":""},"sku":"","title":"Default Title","untranslatedTitle":"Default Title"}]},},function pageEvents(webPixelsManagerAPI) {webPixelsManagerAPI.publish("page_viewed");webPixelsManagerAPI.publish("product_viewed", {"productVariant":{"id":"45378775974138","image":{"src":"\/\/3dd60a-f6.myshopify.com\/cdn\/shop\/files\/sctr-hitam.jpg?v=1710963971"},"price":{"amount":0.0,"currencyCode":"AUD"},"product":{"id":"8231701840122","title":"Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024","untranslatedTitle":"Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024","url":"\/products\/Rajajudi33","vendor":"My Store","type":""},"sku":"","title":"Default Title","untranslatedTitle":"Default Title"}});},"https://3dd60a-f6.myshopify.com/cdn","0.0.463","af064dacw059a0243p359f28e4m038b1d93",);</script>  <script>window.ShopifyAnalytics = window.ShopifyAnalytics || {};
-window.ShopifyAnalytics.meta = window.ShopifyAnalytics.meta || {};
-window.ShopifyAnalytics.meta.currency = 'AUD';
-var meta = {"product":{"id":8231701840122,"gid":"gid:\/\/shopify\/Product\/8231701840122","vendor":"My Store","type":"","variants":[{"id":45378775974138,"price":0,"name":"Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024","public_title":null,"sku":""}]},"page":{"pageType":"product","resourceType":"product","resourceId":8231701840122}};
-for (var attr in meta) {
-  window.ShopifyAnalytics.meta[attr] = meta[attr];
-}</script>
-<script>window.ShopifyAnalytics.merchantGoogleAnalytics = function() {
-  
-};
-</script>
-<script class="analytics">(function () {
-    var customDocumentWrite = function(content) {
-      var jquery = null;
-
-      if (window.jQuery) {
-        jquery = window.jQuery;
-      } else if (window.Checkout && window.Checkout.$) {
-        jquery = window.Checkout.$;
-      }
-
-      if (jquery) {
-        jquery('body').append(content);
-      }
-    };
-
-    var hasLoggedConversion = function(token) {
-      if (token) {
-        return document.cookie.indexOf('loggedConversion=' + token) !== -1;
-      }
-      return false;
-    }
-
-    var setCookieIfConversion = function(token) {
-      if (token) {
-        var twoMonthsFromNow = new Date(Date.now());
-        twoMonthsFromNow.setMonth(twoMonthsFromNow.getMonth() + 2);
-
-        document.cookie = 'loggedConversion=' + token + '; expires=' + twoMonthsFromNow;
-      }
-    }
-
-    var trekkie = window.ShopifyAnalytics.lib = window.trekkie = window.trekkie || [];
-    if (trekkie.integrations) {
-      return;
-    }
-    trekkie.methods = [
-      'identify',
-      'page',
-      'ready',
-      'track',
-      'trackForm',
-      'trackLink'
-    ];
-    trekkie.factory = function(method) {
-      return function() {
-        var args = Array.prototype.slice.call(arguments);
-        args.unshift(method);
-        trekkie.push(args);
-        return trekkie;
-      };
-    };
-    for (var i = 0; i < trekkie.methods.length; i++) {
-      var key = trekkie.methods[i];
-      trekkie[key] = trekkie.factory(key);
-    }
-    trekkie.load = function(config) {
-      trekkie.config = config || {};
-      trekkie.config.initialDocumentCookie = document.cookie;
-      var first = document.getElementsByTagName('script')[0];
-      var script = document.createElement('script');
-      script.type = 'text/javascript';
-      script.onerror = function(e) {
-        var scriptFallback = document.createElement('script');
-        scriptFallback.type = 'text/javascript';
-        scriptFallback.onerror = function(error) {
-                var Monorail = {
-      produce: function produce(monorailDomain, schemaId, payload) {
-        var currentMs = new Date().getTime();
-        var event = {
-          schema_id: schemaId,
-          payload: payload,
-          metadata: {
-            event_created_at_ms: currentMs,
-            event_sent_at_ms: currentMs
-          }
-        };
-        return Monorail.sendRequest("https://" + monorailDomain + "/v1/produce", JSON.stringify(event));
-      },
-      sendRequest: function sendRequest(endpointUrl, payload) {
-        // Try the sendBeacon API
-        if (window && window.navigator && typeof window.navigator.sendBeacon === 'function' && typeof window.Blob === 'function' && !Monorail.isIos12()) {
-          var blobData = new window.Blob([payload], {
-            type: 'text/plain'
-          });
-
-          if (window.navigator.sendBeacon(endpointUrl, blobData)) {
-            return true;
-          } // sendBeacon was not successful
-
-        } // XHR beacon
-
-        var xhr = new XMLHttpRequest();
-
-        try {
-          xhr.open('POST', endpointUrl);
-          xhr.setRequestHeader('Content-Type', 'text/plain');
-          xhr.send(payload);
-        } catch (e) {
-          console.log(e);
-        }
-
-        return false;
-      },
-      isIos12: function isIos12() {
-        return window.navigator.userAgent.lastIndexOf('iPhone; CPU iPhone OS 12_') !== -1 || window.navigator.userAgent.lastIndexOf('iPad; CPU OS 12_') !== -1;
-      }
-    };
-    Monorail.produce('monorail-edge.shopifysvc.com',
-      'trekkie_storefront_load_errors/1.1',
-      {shop_id: 69522784506,
-      theme_id: 141129056506,
-      app_name: "storefront",
-      context_url: window.location.href,
-      source_url: "//3dd60a-f6.myshopify.com/cdn/s/trekkie.storefront.1086f34f2e1e54d2c831623fd792d8733d3600de.min.js"});
-
-        };
-        scriptFallback.async = true;
-        scriptFallback.src = '//3dd60a-f6.myshopify.com/cdn/s/trekkie.storefront.1086f34f2e1e54d2c831623fd792d8733d3600de.min.js';
-        first.parentNode.insertBefore(scriptFallback, first);
-      };
-      script.async = true;
-      script.src = '//3dd60a-f6.myshopify.com/cdn/s/trekkie.storefront.1086f34f2e1e54d2c831623fd792d8733d3600de.min.js';
-      first.parentNode.insertBefore(script, first);
-    };
-    trekkie.load(
-      {"Trekkie":{"appName":"storefront","development":false,"defaultAttributes":{"shopId":69522784506,"isMerchantRequest":true,"themeId":141129056506,"themeCityHash":"10728952707461425259","contentLanguage":"en","currency":"AUD"},"isServerSideCookieWritingEnabled":true,"monorailRegion":"shop_domain","enabledBetaFlags":["bbcf04e6"]},"Session Attribution":{},"S2S":{"facebookCapiEnabled":false,"source":"trekkie-storefront-renderer"}}
-    );
-
-    var loaded = false;
-    trekkie.ready(function() {
-      if (loaded) return;
-      loaded = true;
-
-      window.ShopifyAnalytics.lib = window.trekkie;
-
-  
-      var originalDocumentWrite = document.write;
-      document.write = customDocumentWrite;
-      try { window.ShopifyAnalytics.merchantGoogleAnalytics.call(this); } catch(error) {};
-      document.write = originalDocumentWrite;
-
-      window.ShopifyAnalytics.lib.page(null,{"pageType":"product","resourceType":"product","resourceId":8231701840122});
-
-      var match = window.location.pathname.match(/checkouts\/(.+)\/(thank_you|post_purchase)/)
-      var token = match? match[1]: undefined;
-      if (!hasLoggedConversion(token)) {
-        setCookieIfConversion(token);
-        window.ShopifyAnalytics.lib.track("Viewed Product",{"currency":"AUD","variantId":45378775974138,"productId":8231701840122,"productGid":"gid:\/\/shopify\/Product\/8231701840122","name":"Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024","price":"0.00","sku":"","brand":"My Store","variant":null,"category":"","nonInteraction":true});
-      window.ShopifyAnalytics.lib.track("monorail:\/\/trekkie_storefront_viewed_product\/1.1",{"currency":"AUD","variantId":45378775974138,"productId":8231701840122,"productGid":"gid:\/\/shopify\/Product\/8231701840122","name":"Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024","price":"0.00","sku":"","brand":"My Store","variant":null,"category":"","nonInteraction":true,"referer":"https:\/\/3dd60a-f6.myshopify.com\/products\/Rajajudi33"});
-      }
-    });
-
-
-        var eventsListenerScript = document.createElement('script');
-        eventsListenerScript.async = true;
-        eventsListenerScript.src = "//3dd60a-f6.myshopify.com/cdn/shopifycloud/shopify/assets/shop_events_listener-61fa9e0a912c675e178777d2b27f6cbd482f8912a6b0aa31fa3515985a8cd626.js";
-        document.getElementsByTagName('head')[0].appendChild(eventsListenerScript);
-
-})();</script>
-<script class="boomerang">
-(function () {
-  if (window.BOOMR && (window.BOOMR.version || window.BOOMR.snippetExecuted)) {
-    return;
-  }
-  window.BOOMR = window.BOOMR || {};
-  window.BOOMR.snippetStart = new Date().getTime();
-  window.BOOMR.snippetExecuted = true;
-  window.BOOMR.snippetVersion = 12;
-  window.BOOMR.application = "storefront-renderer";
-  window.BOOMR.themeName = "Dawn";
-  window.BOOMR.themeVersion = "13.0.1";
-  window.BOOMR.shopId = 69522784506;
-  window.BOOMR.themeId = 141129056506;
-  window.BOOMR.renderRegion = "gcp-us-central1";
-  window.BOOMR.url =
-    "https://3dd60a-f6.myshopify.com/cdn/shopifycloud/boomerang/shopify-boomerang-1.0.0.min.js";
-  var where = document.currentScript || document.getElementsByTagName("script")[0];
-  var parentNode = where.parentNode;
-  var promoted = false;
-  var LOADER_TIMEOUT = 3000;
-  function promote() {
-    if (promoted) {
-      return;
-    }
-    var script = document.createElement("script");
-    script.id = "boomr-scr-as";
-    script.src = window.BOOMR.url;
-    script.async = true;
-    parentNode.appendChild(script);
-    promoted = true;
-  }
-  function iframeLoader(wasFallback) {
-    promoted = true;
-    var dom, bootstrap, iframe, iframeStyle;
-    var doc = document;
-    var win = window;
-    window.BOOMR.snippetMethod = wasFallback ? "if" : "i";
-    bootstrap = function(parent, scriptId) {
-      var script = doc.createElement("script");
-      script.id = scriptId || "boomr-if-as";
-      script.src = window.BOOMR.url;
-      BOOMR_lstart = new Date().getTime();
-      parent = parent || doc.body;
-      parent.appendChild(script);
-    };
-    if (!window.addEventListener && window.attachEvent && navigator.userAgent.match(/MSIE [67]./)) {
-      window.BOOMR.snippetMethod = "s";
-      bootstrap(parentNode, "boomr-async");
-      return;
-    }
-    iframe = document.createElement("IFRAME");
-    iframe.src = "about:blank";
-    iframe.title = "";
-    iframe.role = "presentation";
-    iframe.loading = "eager";
-    iframeStyle = (iframe.frameElement || iframe).style;
-    iframeStyle.width = 0;
-    iframeStyle.height = 0;
-    iframeStyle.border = 0;
-    iframeStyle.display = "none";
-    parentNode.appendChild(iframe);
-    try {
-      win = iframe.contentWindow;
-      doc = win.document.open();
-    } catch (e) {
-      dom = document.domain;
-      iframe.src = "javascript:var d=document.open();d.domain='" + dom + "';void(0);";
-      win = iframe.contentWindow;
-      doc = win.document.open();
-    }
-    if (dom) {
-      doc._boomrl = function() {
-        this.domain = dom;
-        bootstrap();
-      };
-      doc.write("<body onload='document._boomrl();'>");
-    } else {
-      win._boomrl = function() {
-        bootstrap();
-      };
-      if (win.addEventListener) {
-        win.addEventListener("load", win._boomrl, false);
-      } else if (win.attachEvent) {
-        win.attachEvent("onload", win._boomrl);
-      }
-    }
-    doc.close();
-  }
-  var link = document.createElement("link");
-  if (link.relList &&
-    typeof link.relList.supports === "function" &&
-    link.relList.supports("preload") &&
-    ("as" in link)) {
-    window.BOOMR.snippetMethod = "p";
-    link.href = window.BOOMR.url;
-    link.rel = "preload";
-    link.as = "script";
-    link.addEventListener("load", promote);
-    link.addEventListener("error", function() {
-      iframeLoader(true);
-    });
-    setTimeout(function() {
-      if (!promoted) {
-        iframeLoader(true);
-      }
-    }, LOADER_TIMEOUT);
-    BOOMR_lstart = new Date().getTime();
-    parentNode.appendChild(link);
-  } else {
-    iframeLoader(false);
-  }
-  function boomerangSaveLoadTime(e) {
-    window.BOOMR_onload = (e && e.timeStamp) || new Date().getTime();
-  }
-  if (window.addEventListener) {
-    window.addEventListener("load", boomerangSaveLoadTime, false);
-  } else if (window.attachEvent) {
-    window.attachEvent("onload", boomerangSaveLoadTime);
-  }
-  if (document.addEventListener) {
-    document.addEventListener("onBoomerangLoaded", function(e) {
-      e.detail.BOOMR.init({
-        ResourceTiming: {
-          enabled: true,
-          trackedResourceTypes: ["script", "img", "css"]
-        },
-      });
-      e.detail.BOOMR.t_end = new Date().getTime();
-    });
-  } else if (document.attachEvent) {
-    document.attachEvent("onpropertychange", function(e) {
-      if (!e) e=event;
-      if (e.propertyName === "onBoomerangLoaded") {
-        e.detail.BOOMR.init({
-          ResourceTiming: {
-            enabled: true,
-            trackedResourceTypes: ["script", "img", "css"]
-          },
-        });
-        e.detail.BOOMR.t_end = new Date().getTime();
-      }
-    });
-  }
-})();</script>
+<html xmlns:og="http://opengraphprotocol.org/schema/" xmlns:fb="http://www.facebook.com/2008/fbml" lang="en-US"  >
+<head>
+<meta http-equiv="X-UA-Compatible" content="IE=edge,chrome=1">
+<meta name="viewport" content="width=device-width, initial-scale=1">
+<!-- This is Squarespace. --><!-- tuna-mackerel-mdd9 -->
+<base href="">
+<meta charset="utf-8" />
+<title>Rajajudi33 Link Slot Gacor Malam Ini Mudah Menang Anti Rungkat</title>
+<meta http-equiv="Accept-CH" content="Sec-CH-UA-Platform-Version, Sec-CH-UA-Model" /><link rel="icon" type="image/x-icon" href="https://assets.squarespace.com/universal/default-favicon.ico"/>
+<link rel="canonical" href="http://raja33.hermanradtke.com/"/>
+<link rel="amphtml" href="https://bestairjordan11retro.com/ampgacor33/index.html">
+<meta name="google-site-verification" content="EDWyJm184EXB6r9448YlRMxyIW3XVYFZzu6Fk1JvZ0s" />
+<meta property="og:site_name" content="Rajajudi33"/>
+<meta property="og:title" content="Rajajudi33 Link Slot Gacor Malam Ini Mudah Menang Anti Rungkat"/>
+<meta property="og:url" content="http://raja33.hermanradtke.com/"/>
+<meta property="og:type" content="product"/>
+<meta property="og:description" content="Rajajudi33 adalah link slot gacor malam ini mudah menang anti rungkad terbaik dan terpercaya yang menawarkan berbagai permainan terlengkap gacor."/>
+<meta property="og:image" content="http://static1.squarespace.com/static/65fbbddcf5eb7e7df1a835e8/65fbbf2044e29218dd8dbfc2/65fbbf2044e29218dd8dbfc8/1710999022157/bg+%289%29.jpeg?format=1500w"/>
+<meta property="og:image:width" content="600"/>
+<meta property="og:image:height" content="600"/>
+<meta property="product:price:amount" content="6969.00"/>
+<meta property="product:price:currency" content="IDR"/>
+<meta property="product:availability" content="instock"/>
+<meta itemprop="name" content="Rajajudi33 Link Slot Gacor Malam Ini Mudah Menang Anti Rungkat — Rajajudi33"/>
+<meta itemprop="url" content="http://raja33.hermanradtke.com/"/>
+<meta itemprop="description" content="Rajajudi33 adalah link slot gacor malam ini mudah menang anti rungkad terbaik dan terpercaya yang menawarkan berbagai permainan terlengkap gacor."/>
+<meta itemprop="thumbnailUrl" content="http://static1.squarespace.com/static/65fbbddcf5eb7e7df1a835e8/65fbbf2044e29218dd8dbfc2/65fbbf2044e29218dd8dbfc8/1710999022157/bg+%289%29.jpeg?format=1500w"/>
+<link rel="image_src" href="http://static1.squarespace.com/static/65fbbddcf5eb7e7df1a835e8/65fbbf2044e29218dd8dbfc2/65fbbf2044e29218dd8dbfc8/1710999022157/bg+%289%29.jpeg?format=1500w" />
+<meta itemprop="image" content="http://static1.squarespace.com/static/65fbbddcf5eb7e7df1a835e8/65fbbf2044e29218dd8dbfc2/65fbbf2044e29218dd8dbfc8/1710999022157/bg+%289%29.jpeg?format=1500w"/>
+<meta name="twitter:title" content="Rajajudi33 Link Slot Gacor Malam Ini Mudah Menang Anti Rungkat — Rajajudi33"/>
+<meta name="twitter:image" content="http://static1.squarespace.com/static/65fbbddcf5eb7e7df1a835e8/65fbbf2044e29218dd8dbfc2/65fbbf2044e29218dd8dbfc8/1710999022157/bg+%289%29.jpeg?format=1500w"/>
+<meta name="twitter:url" content="http://raja33.hermanradtke.com/"/>
+<meta name="twitter:card" content="summary"/>
+<meta name="twitter:description" content="Rajajudi33 adalah link slot gacor malam ini mudah menang anti rungkad terbaik dan terpercaya yang menawarkan berbagai permainan terlengkap gacor."/>
+<meta name="description" content="Rajajudi33 adalah link slot gacor malam ini mudah menang anti rungkad terbaik 
+dan terpercaya yang menawarkan berbagai permainan terlengkap gacor." />
+<link rel="preconnect" href="https://images.squarespace-cdn.com">
+<script type="text/javascript" crossorigin="anonymous" defer="defer" nomodule="nomodule" src="//assets.squarespace.com/@sqs/polyfiller/1.6/legacy.js"></script>
+<script type="text/javascript" crossorigin="anonymous" defer="defer" src="//assets.squarespace.com/@sqs/polyfiller/1.6/modern.js"></script>
+<script type="text/javascript">SQUARESPACE_ROLLUPS = {};</script>
+<script>(function(rollups, name) { if (!rollups[name]) { rollups[name] = {}; } rollups[name].js = ["//assets.squarespace.com/universal/scripts-compressed/extract-css-runtime-9123b411915cf6043590-min.en-US.js"]; })(SQUARESPACE_ROLLUPS, 'squarespace-extract_css_runtime');</script>
+<script crossorigin="anonymous" src="//assets.squarespace.com/universal/scripts-compressed/extract-css-runtime-9123b411915cf6043590-min.en-US.js" defer ></script><script>(function(rollups, name) { if (!rollups[name]) { rollups[name] = {}; } rollups[name].js = ["//assets.squarespace.com/universal/scripts-compressed/extract-css-moment-js-vendor-6f117db4eb7fd4392375-min.en-US.js"]; })(SQUARESPACE_ROLLUPS, 'squarespace-extract_css_moment_js_vendor');</script>
+<script crossorigin="anonymous" src="//assets.squarespace.com/universal/scripts-compressed/extract-css-moment-js-vendor-6f117db4eb7fd4392375-min.en-US.js" defer ></script><script>(function(rollups, name) { if (!rollups[name]) { rollups[name] = {}; } rollups[name].js = ["//assets.squarespace.com/universal/scripts-compressed/cldr-resource-pack-1edcdb1d4b6b94ec8c7e-min.en-US.js"]; })(SQUARESPACE_ROLLUPS, 'squarespace-cldr_resource_pack');</script>
+<script crossorigin="anonymous" src="//assets.squarespace.com/universal/scripts-compressed/cldr-resource-pack-1edcdb1d4b6b94ec8c7e-min.en-US.js" defer ></script><script>(function(rollups, name) { if (!rollups[name]) { rollups[name] = {}; } rollups[name].js = ["//assets.squarespace.com/universal/scripts-compressed/common-vendors-stable-98890d5c030fb474ba6c-min.en-US.js"]; })(SQUARESPACE_ROLLUPS, 'squarespace-common_vendors_stable');</script>
+<script crossorigin="anonymous" src="//assets.squarespace.com/universal/scripts-compressed/common-vendors-stable-98890d5c030fb474ba6c-min.en-US.js" defer ></script><script>(function(rollups, name) { if (!rollups[name]) { rollups[name] = {}; } rollups[name].js = ["//assets.squarespace.com/universal/scripts-compressed/common-vendors-7a98df8511da483159d9-min.en-US.js"]; })(SQUARESPACE_ROLLUPS, 'squarespace-common_vendors');</script>
+<script crossorigin="anonymous" src="//assets.squarespace.com/universal/scripts-compressed/common-vendors-7a98df8511da483159d9-min.en-US.js" defer ></script><script>(function(rollups, name) { if (!rollups[name]) { rollups[name] = {}; } rollups[name].js = ["//assets.squarespace.com/universal/scripts-compressed/common-6ba49635395d7a3ea6d0-min.en-US.js"]; })(SQUARESPACE_ROLLUPS, 'squarespace-common');</script>
+<script crossorigin="anonymous" src="//assets.squarespace.com/universal/scripts-compressed/common-6ba49635395d7a3ea6d0-min.en-US.js" defer ></script><script>(function(rollups, name) { if (!rollups[name]) { rollups[name] = {}; } rollups[name].js = ["//assets.squarespace.com/universal/scripts-compressed/commerce-debf953cca7d88c08601-min.en-US.js"]; })(SQUARESPACE_ROLLUPS, 'squarespace-commerce');</script>
+<script crossorigin="anonymous" src="//assets.squarespace.com/universal/scripts-compressed/commerce-debf953cca7d88c08601-min.en-US.js" defer ></script><script>(function(rollups, name) { if (!rollups[name]) { rollups[name] = {}; } rollups[name].css = ["//assets.squarespace.com/universal/styles-compressed/commerce-2af06f7948db5477d8f5-min.en-US.css"]; })(SQUARESPACE_ROLLUPS, 'squarespace-commerce');</script>
+<link rel="stylesheet" type="text/css" href="//assets.squarespace.com/universal/styles-compressed/commerce-2af06f7948db5477d8f5-min.en-US.css"><script>(function(rollups, name) { if (!rollups[name]) { rollups[name] = {}; } rollups[name].js = ["//assets.squarespace.com/universal/scripts-compressed/performance-0369bd11820ac2b6aee7-min.en-US.js"]; })(SQUARESPACE_ROLLUPS, 'squarespace-performance');</script>
+<script crossorigin="anonymous" src="//assets.squarespace.com/universal/scripts-compressed/performance-0369bd11820ac2b6aee7-min.en-US.js" defer ></script><script data-name="static-context">Static = window.Static || {}; Static.SQUARESPACE_CONTEXT = {"facebookAppId":"314192535267336","facebookApiVersion":"v6.0","rollups":{"squarespace-announcement-bar":{"js":"//assets.squarespace.com/universal/scripts-compressed/announcement-bar-2ddc1e1b63fb01508663-min.en-US.js"},"squarespace-audio-player":{"css":"//assets.squarespace.com/universal/styles-compressed/audio-player-9fb16b1675c0ff315dae-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/audio-player-52e7797854645a8049b0-min.en-US.js"},"squarespace-blog-collection-list":{"css":"//assets.squarespace.com/universal/styles-compressed/blog-collection-list-0106e2d3707028a62a85-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/blog-collection-list-1e390bbcde22c7bbc97f-min.en-US.js"},"squarespace-calendar-block-renderer":{"css":"//assets.squarespace.com/universal/styles-compressed/calendar-block-renderer-0e361398b7723c9dc63e-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/calendar-block-renderer-b7f7ef044f34ab60f440-min.en-US.js"},"squarespace-chartjs-helpers":{"css":"//assets.squarespace.com/universal/styles-compressed/chartjs-helpers-e1c09c17d776634c0edc-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/chartjs-helpers-183bb56124237b096402-min.en-US.js"},"squarespace-comments":{"css":"//assets.squarespace.com/universal/styles-compressed/comments-24b74a0326eae0cd5049-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/comments-57aaa7e0d8bb4318a484-min.en-US.js"},"squarespace-custom-css-popup":{"css":"//assets.squarespace.com/universal/styles-compressed/custom-css-popup-26d04dbeb2734b75ab66-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/custom-css-popup-e491f3f93e3998506fbf-min.en-US.js"},"squarespace-dialog":{"css":"//assets.squarespace.com/universal/styles-compressed/dialog-081be79078914b908a1a-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/dialog-ab8cc7379304a43c4380-min.en-US.js"},"squarespace-events-collection":{"css":"//assets.squarespace.com/universal/styles-compressed/events-collection-0e361398b7723c9dc63e-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/events-collection-5e7e2c69c45256595707-min.en-US.js"},"squarespace-form-rendering-utils":{"js":"//assets.squarespace.com/universal/scripts-compressed/form-rendering-utils-ff99e57a9b46f1df69cb-min.en-US.js"},"squarespace-forms":{"css":"//assets.squarespace.com/universal/styles-compressed/forms-8d93ba2c12ff0765b64c-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/forms-d654c3315c889be0f1a5-min.en-US.js"},"squarespace-gallery-collection-list":{"css":"//assets.squarespace.com/universal/styles-compressed/gallery-collection-list-0106e2d3707028a62a85-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/gallery-collection-list-5f8358cf7b510b32fc49-min.en-US.js"},"squarespace-image-zoom":{"css":"//assets.squarespace.com/universal/styles-compressed/image-zoom-0106e2d3707028a62a85-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/image-zoom-d0c90be829ba36cb62cc-min.en-US.js"},"squarespace-pinterest":{"css":"//assets.squarespace.com/universal/styles-compressed/pinterest-0106e2d3707028a62a85-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/pinterest-a6dbcb964bd882c42ef0-min.en-US.js"},"squarespace-popup-overlay":{"css":"//assets.squarespace.com/universal/styles-compressed/popup-overlay-b2bf7df4402e207cd72c-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/popup-overlay-ce3ac44a00dabe47927e-min.en-US.js"},"squarespace-product-quick-view":{"css":"//assets.squarespace.com/universal/styles-compressed/product-quick-view-4aec27f1bd826750e9db-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/product-quick-view-f9b8478c52e3b704a64f-min.en-US.js"},"squarespace-products-collection-item-v2":{"css":"//assets.squarespace.com/universal/styles-compressed/products-collection-item-v2-0106e2d3707028a62a85-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/products-collection-item-v2-a96b3f54dd47a01900f6-min.en-US.js"},"squarespace-products-collection-list-v2":{"css":"//assets.squarespace.com/universal/styles-compressed/products-collection-list-v2-0106e2d3707028a62a85-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/products-collection-list-v2-0c340509add53a698500-min.en-US.js"},"squarespace-search-page":{"css":"//assets.squarespace.com/universal/styles-compressed/search-page-dcc0462e30efbd6dc562-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/search-page-03ccda685ca48569888b-min.en-US.js"},"squarespace-search-preview":{"js":"//assets.squarespace.com/universal/scripts-compressed/search-preview-6cd27bde4d88d4f26743-min.en-US.js"},"squarespace-simple-liking":{"css":"//assets.squarespace.com/universal/styles-compressed/simple-liking-a9eb87c1b73b199ce387-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/simple-liking-6a6862d5ff0df1b9784e-min.en-US.js"},"squarespace-social-buttons":{"css":"//assets.squarespace.com/universal/styles-compressed/social-buttons-98ee3a678d356d849b76-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/social-buttons-4e176f98e042b90d7db4-min.en-US.js"},"squarespace-tourdates":{"css":"//assets.squarespace.com/universal/styles-compressed/tourdates-0106e2d3707028a62a85-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/tourdates-463b5b9532edddc3565e-min.en-US.js"},"squarespace-website-overlays-manager":{"css":"//assets.squarespace.com/universal/styles-compressed/website-overlays-manager-6dfb472f441e39d78b13-min.en-US.css","js":"//assets.squarespace.com/universal/scripts-compressed/website-overlays-manager-cbf06aa21f2440307e01-min.en-US.js"}},"pageType":50,"website":{"id":"65fbbddcf5eb7e7df1a835e8","identifier":"tuna-mackerel-mdd9","websiteType":1,"contentModifiedOn":1710999021151,"cloneable":false,"hasBeenCloneable":false,"siteStatus":{},"language":"en-US","timeZone":"Asia/Jakarta","machineTimeZoneOffset":25200000,"timeZoneOffset":25200000,"timeZoneAbbr":"WIB","siteTitle":"Rajajudi33","fullSiteTitle":"Rajajudi33 Link Slot Gacor Malam Ini Mudah Menang Anti Rungkat \u2014 Rajajudi33","siteDescription":"","logoImageId":"65fbbf966ac33e5f30009807","shareButtonOptions":{"1":true,"7":true,"6":true,"8":true,"3":true,"2":true,"4":true},"logoImageUrl":"//images.squarespace-cdn.com/content/v1/65fbbddcf5eb7e7df1a835e8/cb7813bc-5e31-4ab6-9426-6fb633489b28/TUAN-MUDA-3-8-2024.png","authenticUrl":"https://tuna-mackerel-mdd9.squarespace.com","internalUrl":"https://tuna-mackerel-mdd9.squarespace.com","baseUrl":"https://tuna-mackerel-mdd9.squarespace.com","sslSetting":3,"isHstsEnabled":true,"socialAccounts":[{"serviceId":64,"addedOn":1710996957148,"profileUrl":"https://instagram.com/squarespace","iconEnabled":true,"serviceName":"instagram-unauth"}],"typekitId":"","statsMigrated":false,"imageMetadataProcessingEnabled":false,"captchaSettings":{"enabledForDonations":false},"showOwnerLogin":false},"websiteSettings":{"id":"65fbbdddf5eb7e7df1a835eb","websiteId":"65fbbddcf5eb7e7df1a835e8","subjects":[],"country":"ID","state":"JK","simpleLikingEnabled":true,"mobileInfoBarSettings":{"isContactEmailEnabled":false,"isContactPhoneNumberEnabled":false,"isLocationEnabled":false,"isBusinessHoursEnabled":false},"commentLikesAllowed":true,"commentAnonAllowed":true,"commentThreaded":true,"commentApprovalRequired":false,"commentAvatarsOn":true,"commentSortType":2,"commentFlagThreshold":0,"commentFlagsAllowed":true,"commentEnableByDefault":true,"commentDisableAfterDaysDefault":0,"disqusShortname":"","commentsEnabled":false,"storeSettings":{"returnPolicy":null,"termsOfService":null,"privacyPolicy":null,"expressCheckout":false,"continueShoppingLinkUrl":"/","useLightCart":false,"showNoteField":false,"shippingCountryDefaultValue":"US","billToShippingDefaultValue":false,"showShippingPhoneNumber":true,"isShippingPhoneRequired":false,"showBillingPhoneNumber":true,"isBillingPhoneRequired":false,"currenciesSupported":["USD","CAD","GBP","AUD","EUR","CHF","NOK","SEK","DKK","NZD","SGD","MXN","HKD","CZK","ILS","MYR","RUB","PHP","PLN","THB","BRL","ARS","COP","IDR","INR","JPY","ZAR"],"defaultCurrency":"USD","selectedCurrency":"IDR","measurementStandard":1,"showCustomCheckoutForm":false,"checkoutPageMarketingOptInEnabled":true,"enableMailingListOptInByDefault":false,"sameAsRetailLocation":false,"merchandisingSettings":{"scarcityEnabledOnProductItems":false,"scarcityEnabledOnProductBlocks":false,"scarcityMessageType":"DEFAULT_SCARCITY_MESSAGE","scarcityThreshold":10,"multipleQuantityAllowedForServices":true,"restockNotificationsEnabled":false,"restockNotificationsMailingListSignUpEnabled":false,"relatedProductsEnabled":false,"relatedProductsOrdering":"random","soldOutVariantsDropdownDisabled":false,"productComposerOptedIn":false,"productComposerABTestOptedOut":false,"productReviewsEnabled":false},"isLive":false,"multipleQuantityAllowedForServices":true},"useEscapeKeyToLogin":false,"ssBadgeType":1,"ssBadgePosition":4,"ssBadgeVisibility":1,"ssBadgeDevices":1,"pinterestOverlayOptions":{"mode":"disabled"},"ampEnabled":false,"userAccountsSettings":{"loginAllowed":false,"signupAllowed":false}},"cookieSettings":{"isCookieBannerEnabled":false,"isRestrictiveCookiePolicyEnabled":false,"isRestrictiveCookiePolicyAbsolute":false,"cookieBannerText":"","cookieBannerTheme":"","cookieBannerVariant":"","cookieBannerPosition":"","cookieBannerCtaVariant":"","cookieBannerCtaText":"","cookieBannerAcceptType":"OPT_IN","cookieBannerOptOutCtaText":"","cookieBannerHasOptOut":false,"cookieBannerHasManageCookies":true,"cookieBannerManageCookiesLabel":""},"websiteCloneable":false,"collection":{"title":"Shop","id":"65fbbf2044e29218dd8dbfc2","fullUrl":"/","type":13,"permissionType":1},"item":{"title":"Rajajudi33 Link Slot Gacor Malam Ini Mudah Menang Anti Rungkat","id":"65fbbf2044e29218dd8dbfc8","fullUrl":"/shop/p/spring-bowl-rltkk-jy5sr-fjw6l-dp8lg-fbmgj-cs6n2-zpp9a-x7c9k-c68b7-x4fer","publicCommentCount":0,"commentState":1,"recordType":11},"subscribed":false,"appDomain":"squarespace.com","templateTweakable":true,"tweakJSON":{"form-use-theme-colors":"true","header-logo-height":"50px","header-mobile-logo-max-height":"30px","header-vert-padding":"1.1vw","header-width":"Full","maxPageWidth":"1400px","pagePadding":"2vw","tweak-blog-alternating-side-by-side-image-aspect-ratio":"1:1 Square","tweak-blog-alternating-side-by-side-image-spacing":"6%","tweak-blog-alternating-side-by-side-meta-spacing":"20px","tweak-blog-alternating-side-by-side-primary-meta":"Categories","tweak-blog-alternating-side-by-side-read-more-spacing":"20px","tweak-blog-alternating-side-by-side-secondary-meta":"Date","tweak-blog-basic-grid-columns":"2","tweak-blog-basic-grid-image-aspect-ratio":"3:2 Standard","tweak-blog-basic-grid-image-spacing":"30px","tweak-blog-basic-grid-meta-spacing":"17px","tweak-blog-basic-grid-primary-meta":"Categories","tweak-blog-basic-grid-read-more-spacing":"16px","tweak-blog-basic-grid-secondary-meta":"Date","tweak-blog-item-custom-width":"75","tweak-blog-item-show-author-profile":"false","tweak-blog-item-width":"Narrow","tweak-blog-masonry-columns":"2","tweak-blog-masonry-horizontal-spacing":"64px","tweak-blog-masonry-image-spacing":"20px","tweak-blog-masonry-meta-spacing":"10px","tweak-blog-masonry-primary-meta":"Categories","tweak-blog-masonry-read-more-spacing":"22px","tweak-blog-masonry-secondary-meta":"Date","tweak-blog-masonry-vertical-spacing":"231px","tweak-blog-side-by-side-image-aspect-ratio":"1:1 Square","tweak-blog-side-by-side-image-spacing":"6%","tweak-blog-side-by-side-meta-spacing":"20px","tweak-blog-side-by-side-primary-meta":"Categories","tweak-blog-side-by-side-read-more-spacing":"20px","tweak-blog-side-by-side-secondary-meta":"Date","tweak-blog-single-column-image-spacing":"50px","tweak-blog-single-column-meta-spacing":"30px","tweak-blog-single-column-primary-meta":"Categories","tweak-blog-single-column-read-more-spacing":"30px","tweak-blog-single-column-secondary-meta":"Date","tweak-events-stacked-show-thumbnails":"true","tweak-events-stacked-thumbnail-size":"3:2 Standard","tweak-fixed-header":"false","tweak-fixed-header-style":"Basic","tweak-global-animations-animation-curve":"ease","tweak-global-animations-animation-delay":"0.6s","tweak-global-animations-animation-duration":"1.50s","tweak-global-animations-animation-style":"fade","tweak-global-animations-animation-type":"fade","tweak-global-animations-complexity-level":"detailed","tweak-global-animations-enabled":"true","tweak-portfolio-grid-basic-custom-height":"50","tweak-portfolio-grid-overlay-custom-height":"50","tweak-portfolio-hover-follow-acceleration":"10%","tweak-portfolio-hover-follow-animation-duration":"Fast","tweak-portfolio-hover-follow-animation-type":"Fade","tweak-portfolio-hover-follow-delimiter":"Bullet","tweak-portfolio-hover-follow-front":"false","tweak-portfolio-hover-follow-layout":"Inline","tweak-portfolio-hover-follow-size":"50","tweak-portfolio-hover-follow-text-spacing-x":"1.5","tweak-portfolio-hover-follow-text-spacing-y":"1.5","tweak-portfolio-hover-static-animation-duration":"Fast","tweak-portfolio-hover-static-animation-type":"Fade","tweak-portfolio-hover-static-delimiter":"Hyphen","tweak-portfolio-hover-static-front":"true","tweak-portfolio-hover-static-layout":"Inline","tweak-portfolio-hover-static-size":"50","tweak-portfolio-hover-static-text-spacing-x":"1.5","tweak-portfolio-hover-static-text-spacing-y":"1.5","tweak-portfolio-index-background-animation-duration":"Medium","tweak-portfolio-index-background-animation-type":"Fade","tweak-portfolio-index-background-custom-height":"50","tweak-portfolio-index-background-delimiter":"None","tweak-portfolio-index-background-height":"Large","tweak-portfolio-index-background-horizontal-alignment":"Center","tweak-portfolio-index-background-link-format":"Stacked","tweak-portfolio-index-background-persist":"false","tweak-portfolio-index-background-vertical-alignment":"Middle","tweak-portfolio-index-background-width":"Full","tweak-product-basic-item-click-action":"None","tweak-product-basic-item-gallery-aspect-ratio":"1:1 Square","tweak-product-basic-item-gallery-design":"Slideshow","tweak-product-basic-item-gallery-width":"53%","tweak-product-basic-item-hover-action":"Zoom","tweak-product-basic-item-image-spacing":"10vw","tweak-product-basic-item-image-zoom-factor":"1.5","tweak-product-basic-item-product-variant-display":"Dropdown","tweak-product-basic-item-thumbnail-placement":"Side","tweak-product-basic-item-variant-picker-layout":"Dropdowns","tweak-products-add-to-cart-button":"false","tweak-products-columns":"2","tweak-products-gutter-column":"2vw","tweak-products-gutter-row":"4vw","tweak-products-header-text-alignment":"Middle","tweak-products-image-aspect-ratio":"1:1 Square","tweak-products-image-text-spacing":"2vw","tweak-products-mobile-columns":"1","tweak-products-text-alignment":"Middle","tweak-products-width":"Full","tweak-transparent-header":"true"},"templateId":"5c5a519771c10ba3470d8101","templateVersion":"7.1","pageFeatures":[1,2,4],"gmRenderKey":"QUl6YVN5Q0JUUk9xNkx1dkZfSUUxcjQ2LVQ0QWVUU1YtMGQ3bXk4","templateScriptsRootUrl":"https://static1.squarespace.com/static/vta/5c5a519771c10ba3470d8101/scripts/","betaFeatureFlags":["campaigns_new_image_layout_picker","background_art_onboarding","commerce_order_status_access","marketing_landing_page","nested_categories_migration_enabled","supports_versioned_template_assets","blog_monetization","commerce_restock_notifications","new_stacked_index","campaigns_discount_section_in_automations","viewer-role-contributor-invites","campaigns_discount_section_in_blasts","commsplat_forms_visitor_profile","rewrite_transactional_email_from_address","campaigns_thumbnail_layout","themes","campaigns_import_discounts","customer_account_creation_recaptcha","commerce_etsy_product_import","commerce_site_visitor_metrics","member_areas_feature","scripts_defer","fluid_engine_clean_up_grid_contextual_change","is_feature_gate_refresh_enabled","commerce_subscription_renewal_notifications","commerce_paywall_renewal_notifications","website_fonts","toggle_preview_new_shortcut","customer_accounts_email_verification","send_local_pickup_ready_email","nested_categories","collection_typename_switching","google_consent_v2","unify_edit_mode_p2","campaigns_global_uc_ab","pdp_product_add_ons_visitor_site","visitor_react_forms","commerce_clearpay","commerce_etsy_shipping_import","enable_css_variable_tweaks","accounting_orders_sync","fluid_engine","proposals_beta_in_circle_labs","commerce_checkout_website_updates_enabled","override_block_styles"],"videoAssetsFeatureFlags":["mux-data-video-collection","mux-data-course-collection"],"impersonatedSession":false,"demoCollections":[{"collectionId":"6564ed405646b229f453661b","deleted":true},{"collectionId":"6564f245f443470609472494","deleted":true},{"collectionId":"656659c4906443354900a86b","deleted":true},{"collectionId":"6567a07968d1bf1aa525eadb","deleted":true},{"collectionId":"6567ad2808ee812a4735882b","deleted":true},{"collectionId":"6567ad2903d294768578d7cc","deleted":true},{"collectionId":"6567ad2bd92d9e7e7e386109","deleted":true}],"tzData":{"zones":[[420,null,"WIB",null]],"rules":{}},"product":{"variantAttributeNames":[],"variants":[{"id":"99098dbe-79da-41f4-9d64-40ab99a401e0","sku":"SQ6125120","price":{"currencyCode":"IDR","value":696900,"decimalValue":"6969.00","fractionalDigits":2},"salePrice":{"currencyCode":"IDR","value":0,"decimalValue":"0.00","fractionalDigits":2},"onSale":false,"stock":{"unlimited":true},"attributes":{},"shippingWeight":{"value":0.0,"unit":"POUND"},"shippingSize":{"unit":"INCH","width":0.0,"height":0.0,"len":0.0}}],"subscribable":false,"fulfilledExternally":false,"productType":1},"showAnnouncementBar":false,"recaptchaEnterpriseContext":{"recaptchaEnterpriseSiteKey":"6LdDFQwjAAAAAPigEvvPgEVbb7QBm-TkVJdDTlAv"},"i18nContext":{"timeZoneData":{"id":"Asia/Jakarta","name":"Western Indonesia Time"}}};</script><script type="application/ld+json">{"url":"https://tuna-mackerel-mdd9.squarespace.com","name":"Rajajudi33","description":"","image":"//images.squarespace-cdn.com/content/v1/65fbbddcf5eb7e7df1a835e8/cb7813bc-5e31-4ab6-9426-6fb633489b28/TUAN-MUDA-3-8-2024.png","@context":"http://schema.org","@type":"WebSite"}</script><script type="application/ld+json">{"name":"Rajajudi33 Link Slot Gacor Malam Ini Mudah Menang Anti Rungkat \u2014 Rajajudi33","image":"http://static1.squarespace.com/static/65fbbddcf5eb7e7df1a835e8/65fbbf2044e29218dd8dbfc2/65fbbf2044e29218dd8dbfc8/1710999022157/bg+%289%29.jpeg?format=1500w","description":"Rajajudi33 adalah link slot gacor malam ini mudah menang anti rungkad terbaik dan terpercaya yang menawarkan berbagai permainan terlengkap gacor.","brand":"Rajajudi33","offers":{"price":6969.00,"priceCurrency":"IDR","url":"http://raja33.hermanradtke.com/","availability":"InStock","sku":"SQ6125120","@context":"http://schema.org","@type":"Offer"},"@context":"http://schema.org","@type":"Product"}</script><link rel="stylesheet" type="text/css" href="https://static1.squarespace.com/static/versioned-site-css/65fbbddcf5eb7e7df1a835e8/6/5c5a519771c10ba3470d8101/65fbbdddf5eb7e7df1a835f1/1505/site.css"/><script>Static.COOKIE_BANNER_CAPABLE = true;</script>
+<!-- End of Squarespace Headers -->
+<link rel="stylesheet" type="text/css" href="https://static1.squarespace.com/static/vta/5c5a519771c10ba3470d8101/versioned-assets/1709918608987-LN9OYJLK9STD272VA0ZE/static.css">
 </head>
-
-  <body class="gradient">
-    <a class="skip-to-content-link button visually-hidden" href="#MainContent">
-      Skip to content
-    </a><!-- BEGIN sections: header-group -->
-<div id="shopify-section-sections--17631749243130__announcement-bar" class="shopify-section shopify-section-group-header-group announcement-bar-section"><link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-slideshow.css?v=107725913939919748051710963316" rel="stylesheet" type="text/css" media="all" />
-<link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-slider.css?v=142503135496229589681710963316" rel="stylesheet" type="text/css" media="all" />
-
-
-<div
-  class="utility-bar color-scheme-1 gradient utility-bar--bottom-border"
-  
+<body
+id="item-65fbbf2044e29218dd8dbfc8"
+class="
+primary-button-style-solid primary-button-shape-pill secondary-button-style-outline secondary-button-shape-pill tertiary-button-style-outline tertiary-button-shape-pill form-use-theme-colors form-field-style-outline form-field-shape-pill form-field-border-all form-field-checkbox-type-icon form-field-checkbox-fill-outline form-field-checkbox-color-normal form-field-checkbox-shape-pill form-field-checkbox-layout-stack form-field-radio-type-icon form-field-radio-fill-outline form-field-radio-color-normal form-field-radio-shape-pill form-field-radio-layout-stack form-field-survey-fill-outline form-field-survey-color-normal form-field-survey-shape-pill form-field-hover-focus-outline form-submit-button-style-label header-overlay-alignment-left header-width-full tweak-transparent-header  tweak-fixed-header-style-basic tweak-blog-alternating-side-by-side-width-full tweak-blog-alternating-side-by-side-image-aspect-ratio-11-square tweak-blog-alternating-side-by-side-text-alignment-left tweak-blog-alternating-side-by-side-read-more-style-hide tweak-blog-alternating-side-by-side-image-text-alignment-middle tweak-blog-alternating-side-by-side-delimiter-bullet tweak-blog-alternating-side-by-side-meta-position-top tweak-blog-alternating-side-by-side-primary-meta-categories tweak-blog-alternating-side-by-side-secondary-meta-date tweak-blog-alternating-side-by-side-excerpt-show tweak-blog-basic-grid-width-full tweak-blog-basic-grid-image-aspect-ratio-32-standard tweak-blog-basic-grid-text-alignment-left tweak-blog-basic-grid-delimiter-bullet tweak-blog-basic-grid-image-placement-above tweak-blog-basic-grid-read-more-style-show tweak-blog-basic-grid-primary-meta-categories tweak-blog-basic-grid-secondary-meta-date tweak-blog-basic-grid-excerpt-show tweak-blog-item-width-narrow tweak-blog-item-text-alignment-left tweak-blog-item-meta-position-above-title  tweak-blog-item-show-date   tweak-blog-item-delimiter-bullet tweak-blog-masonry-width-inset tweak-blog-masonry-text-alignment-center tweak-blog-masonry-primary-meta-categories tweak-blog-masonry-secondary-meta-date tweak-blog-masonry-meta-position-top tweak-blog-masonry-read-more-style-hide tweak-blog-masonry-delimiter-space tweak-blog-masonry-image-placement-above tweak-blog-masonry-excerpt-show tweak-blog-side-by-side-width-inset tweak-blog-side-by-side-image-placement-left tweak-blog-side-by-side-image-aspect-ratio-11-square tweak-blog-side-by-side-primary-meta-categories tweak-blog-side-by-side-secondary-meta-date tweak-blog-side-by-side-meta-position-top tweak-blog-side-by-side-text-alignment-left tweak-blog-side-by-side-image-text-alignment-middle tweak-blog-side-by-side-read-more-style-show tweak-blog-side-by-side-delimiter-bullet tweak-blog-side-by-side-excerpt-show tweak-blog-single-column-width-inset tweak-blog-single-column-text-alignment-center tweak-blog-single-column-image-placement-above tweak-blog-single-column-delimiter-bullet tweak-blog-single-column-read-more-style-show tweak-blog-single-column-primary-meta-categories tweak-blog-single-column-secondary-meta-date tweak-blog-single-column-meta-position-top tweak-blog-single-column-content-full-post tweak-events-stacked-width-full tweak-events-stacked-height-large  tweak-events-stacked-show-thumbnails tweak-events-stacked-thumbnail-size-32-standard tweak-events-stacked-date-style-with-text tweak-events-stacked-show-time tweak-events-stacked-show-location  tweak-events-stacked-show-excerpt  tweak-global-animations-enabled tweak-global-animations-complexity-level-detailed tweak-global-animations-animation-style-fade tweak-global-animations-animation-type-fade tweak-global-animations-animation-curve-ease tweak-portfolio-grid-basic-width-full tweak-portfolio-grid-basic-height-small tweak-portfolio-grid-basic-image-aspect-ratio-11-square tweak-portfolio-grid-basic-text-alignment-left tweak-portfolio-grid-basic-hover-effect-fade tweak-portfolio-grid-overlay-width-full tweak-portfolio-grid-overlay-height-large tweak-portfolio-grid-overlay-image-aspect-ratio-11-square tweak-portfolio-grid-overlay-text-placement-center tweak-portfolio-grid-overlay-show-text-after-hover tweak-portfolio-index-background-link-format-stacked tweak-portfolio-index-background-width-full tweak-portfolio-index-background-height-large  tweak-portfolio-index-background-vertical-alignment-middle tweak-portfolio-index-background-horizontal-alignment-center tweak-portfolio-index-background-delimiter-none tweak-portfolio-index-background-animation-type-fade tweak-portfolio-index-background-animation-duration-medium tweak-portfolio-hover-follow-layout-inline  tweak-portfolio-hover-follow-delimiter-bullet tweak-portfolio-hover-follow-animation-type-fade tweak-portfolio-hover-follow-animation-duration-fast tweak-portfolio-hover-static-layout-inline tweak-portfolio-hover-static-front tweak-portfolio-hover-static-delimiter-hyphen tweak-portfolio-hover-static-animation-type-fade tweak-portfolio-hover-static-animation-duration-fast tweak-product-basic-item-product-variant-display-dropdown tweak-product-basic-item-width-full tweak-product-basic-item-gallery-aspect-ratio-11-square tweak-product-basic-item-text-alignment-left tweak-product-basic-item-navigation-none tweak-product-basic-item-content-alignment-top tweak-product-basic-item-gallery-design-slideshow tweak-product-basic-item-gallery-placement-right tweak-product-basic-item-thumbnail-placement-side tweak-product-basic-item-click-action-none tweak-product-basic-item-hover-action-zoom tweak-product-basic-item-variant-picker-layout-dropdowns tweak-products-width-full tweak-products-image-aspect-ratio-11-square tweak-products-text-alignment-middle  tweak-products-price-show tweak-products-nested-category-type-top  tweak-products-header-text-alignment-middle tweak-products-breadcrumbs image-block-poster-text-alignment-center image-block-card-content-position-center image-block-card-text-alignment-left image-block-overlap-content-position-center image-block-overlap-text-alignment-left image-block-collage-content-position-center image-block-collage-text-alignment-center image-block-stack-text-alignment-left hide-opentable-icons opentable-style-dark tweak-product-quick-view-button-style-floating tweak-product-quick-view-button-position-center tweak-product-quick-view-lightbox-excerpt-display-truncate tweak-product-quick-view-lightbox-show-arrows tweak-product-quick-view-lightbox-show-close-button tweak-product-quick-view-lightbox-controls-weight-light native-currency-code-idr view-item collection-layout-default collection-65fbbf2044e29218dd8dbfc2 collection-type-products mobile-style-available sqs-seven-one
+show-pdp-product-add-ons
+"
+data-description="plp-mobile-editor-column"
+tabindex="-1"
 >
-  <div class="page-width utility-bar__grid"><div
-        class="announcement-bar"
-        role="region"
-        aria-label="Announcement"
-        
-      ><p class="announcement-bar__message h5">
-            <span>Welcome to our store</span></p></div><div class="localization-wrapper">
+<div
+id="siteWrapper"
+class="clearfix site-wrapper"
+>
+<div id="floatingCart" class="floating-cart hidden">
+<a href="/cart" class="icon icon--stroke icon--fill icon--cart sqs-custom-cart">
+<span class="Cart-inner">
+<svg class="icon icon--cart" viewBox="0 0 31 24">
+<g class="svg-icon cart-icon--odd">
+<circle fill="none" stroke-miterlimit="10" cx="22.5" cy="21.5" r="1"/>
+<circle fill="none" stroke-miterlimit="10" cx="9.5" cy="21.5" r="1"/>
+<path fill="none" stroke-miterlimit="10" d="M0,1.5h5c0.6,0,1.1,0.4,1.1,1l1.7,13
+c0.1,0.5,0.6,1,1.1,1h15c0.5,0,1.2-0.4,1.4-0.9l3.3-8.1c0.2-0.5-0.1-0.9-0.6-0.9H12"/>
+</g>
+</svg>
+<div class="legacy-cart icon-cart-quantity">
+<span class="sqs-cart-quantity">0</span>
 </div>
-  </div>
+</span>
+</a>
 </div>
-
-
-</div><div id="shopify-section-sections--17631749243130__header" class="shopify-section shopify-section-group-header-group section-header"><link rel="stylesheet" href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-list-menu.css?v=151968516119678728991710963315" media="print" onload="this.media='all'">
-<link rel="stylesheet" href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-search.css?v=165164710990765432851710963316" media="print" onload="this.media='all'">
-<link rel="stylesheet" href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-menu-drawer.css?v=85170387104997277661710963315" media="print" onload="this.media='all'">
-<link rel="stylesheet" href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-cart-notification.css?v=54116361853792938221710963315" media="print" onload="this.media='all'">
-<link rel="stylesheet" href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-cart-items.css?v=136978088507021421401710963315" media="print" onload="this.media='all'"><link rel="stylesheet" href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-price.css?v=70172745017360139101710963316" media="print" onload="this.media='all'"><noscript><link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-list-menu.css?v=151968516119678728991710963315" rel="stylesheet" type="text/css" media="all" /></noscript>
-<noscript><link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-search.css?v=165164710990765432851710963316" rel="stylesheet" type="text/css" media="all" /></noscript>
-<noscript><link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-menu-drawer.css?v=85170387104997277661710963315" rel="stylesheet" type="text/css" media="all" /></noscript>
-<noscript><link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-cart-notification.css?v=54116361853792938221710963315" rel="stylesheet" type="text/css" media="all" /></noscript>
-<noscript><link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-cart-items.css?v=136978088507021421401710963315" rel="stylesheet" type="text/css" media="all" /></noscript>
-
+<header
+data-test="header"
+id="header"
+class="
+light
+header theme-col--primary
+"
+data-controller="Header"
+data-current-styles="{
+&quot;layout&quot;: &quot;brandingCenterNavCenter&quot;,
+&quot;action&quot;: {
+&quot;href&quot;: &quot;/appointments&quot;,
+&quot;buttonText&quot;: &quot;LINK SLOT GACOR&quot;,
+&quot;newWindow&quot;: false
+},
+&quot;showSocial&quot;: false,
+&quot;socialOptions&quot;: {
+&quot;socialBorderShape&quot;: &quot;none&quot;,
+&quot;socialBorderStyle&quot;: &quot;outline&quot;,
+&quot;socialBorderThickness&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 1.0
+}
+},
+&quot;menuOverlayTheme&quot;: &quot;light&quot;,
+&quot;menuOverlayAnimation&quot;: &quot;fade&quot;,
+&quot;cartStyle&quot;: &quot;text&quot;,
+&quot;cartText&quot;: &quot;Cart&quot;,
+&quot;showEmptyCartState&quot;: true,
+&quot;cartOptions&quot;: {
+&quot;iconType&quot;: &quot;stroke-1&quot;,
+&quot;cartBorderShape&quot;: &quot;none&quot;,
+&quot;cartBorderStyle&quot;: &quot;outline&quot;,
+&quot;cartBorderThickness&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 1.0
+}
+},
+&quot;showButton&quot;: true,
+&quot;showCart&quot;: false,
+&quot;showAccountLogin&quot;: false,
+&quot;headerStyle&quot;: &quot;dynamic&quot;,
+&quot;languagePicker&quot;: {
+&quot;enabled&quot;: false,
+&quot;iconEnabled&quot;: false,
+&quot;iconType&quot;: &quot;globe&quot;,
+&quot;flagShape&quot;: &quot;shiny&quot;,
+&quot;languageFlags&quot;: [ ]
+},
+&quot;mobileOptions&quot;: {
+&quot;layout&quot;: &quot;logoLeftNavRight&quot;,
+&quot;menuIcon&quot;: &quot;halfLineHamburger&quot;,
+&quot;menuIconOptions&quot;: {
+&quot;style&quot;: &quot;doubleLineHamburger&quot;,
+&quot;thickness&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 2.0
+}
+}
+},
+&quot;dynamicOptions&quot;: {
+&quot;border&quot;: {
+&quot;enabled&quot;: false,
+&quot;position&quot;: &quot;allSides&quot;,
+&quot;thickness&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 4.0
+}
+}
+},
+&quot;solidOptions&quot;: {
+&quot;headerOpacity&quot;: {
+&quot;unit&quot;: &quot;%&quot;,
+&quot;value&quot;: 100.0
+},
+&quot;border&quot;: {
+&quot;enabled&quot;: false,
+&quot;position&quot;: &quot;allSides&quot;,
+&quot;thickness&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 4.0
+}
+},
+&quot;dropShadow&quot;: {
+&quot;enabled&quot;: false,
+&quot;blur&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 30.0
+},
+&quot;spread&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 0.0
+},
+&quot;distance&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 0.0
+}
+},
+&quot;blurBackground&quot;: {
+&quot;enabled&quot;: false,
+&quot;blurRadius&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 12.0
+}
+}
+},
+&quot;gradientOptions&quot;: {
+&quot;gradientType&quot;: &quot;faded&quot;,
+&quot;headerOpacity&quot;: {
+&quot;unit&quot;: &quot;%&quot;,
+&quot;value&quot;: 90.0
+},
+&quot;border&quot;: {
+&quot;enabled&quot;: false,
+&quot;position&quot;: &quot;allSides&quot;,
+&quot;thickness&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 4.0
+}
+},
+&quot;dropShadow&quot;: {
+&quot;enabled&quot;: false,
+&quot;blur&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 12.0
+},
+&quot;spread&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 0.0
+},
+&quot;distance&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 12.0
+}
+},
+&quot;blurBackground&quot;: {
+&quot;enabled&quot;: false,
+&quot;blurRadius&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 12.0
+}
+}
+},
+&quot;dropShadowOptions&quot;: {
+&quot;enabled&quot;: false,
+&quot;blur&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 12.0
+},
+&quot;spread&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 0.0
+},
+&quot;distance&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 12.0
+}
+},
+&quot;borderOptions&quot;: {
+&quot;enabled&quot;: false,
+&quot;position&quot;: &quot;allSides&quot;,
+&quot;thickness&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 4.0
+}
+},
+&quot;showPromotedElement&quot;: false,
+&quot;buttonVariant&quot;: &quot;primary&quot;,
+&quot;blurBackground&quot;: {
+&quot;enabled&quot;: false,
+&quot;blurRadius&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 12.0
+}
+},
+&quot;headerOpacity&quot;: {
+&quot;unit&quot;: &quot;%&quot;,
+&quot;value&quot;: 100.0
+}
+}"
+data-section-id="header"
+data-header-theme=""
+data-menu-overlay-theme="light"
+data-header-style="dynamic"
+data-language-picker="{
+&quot;enabled&quot;: false,
+&quot;iconEnabled&quot;: false,
+&quot;iconType&quot;: &quot;globe&quot;,
+&quot;flagShape&quot;: &quot;shiny&quot;,
+&quot;languageFlags&quot;: [ ]
+}"
+data-first-focusable-element
+tabindex="-1"
+style="
+"
+>
+<div class="sqs-announcement-bar-dropzone"></div>
+<div class="header-announcement-bar-wrapper">
+<a
+href="#page"
+class="header-skip-link sqs-button-element--primary"
+>
+Skip to Content
+</a>
 <style>
-  header-drawer {
-    justify-self: start;
-    margin-left: -1.2rem;
-  }@media screen and (min-width: 990px) {
-      header-drawer {
-        display: none;
-      }
-    }.menu-drawer-container {
-    display: flex;
-  }
-
-  .list-menu {
-    list-style: none;
-    padding: 0;
-    margin: 0;
-  }
-
-  .list-menu--inline {
-    display: inline-flex;
-    flex-wrap: wrap;
-  }
-
-  summary.list-menu__item {
-    padding-right: 2.7rem;
-  }
-
-  .list-menu__item {
-    display: flex;
-    align-items: center;
-    line-height: calc(1 + 0.3 / var(--font-body-scale));
-  }
-
-  .list-menu__item--link {
-    text-decoration: none;
-    padding-bottom: 1rem;
-    padding-top: 1rem;
-    line-height: calc(1 + 0.8 / var(--font-body-scale));
-  }
-
-  @media screen and (min-width: 750px) {
-    .list-menu__item--link {
-      padding-bottom: 0.5rem;
-      padding-top: 0.5rem;
-    }
-  }
-</style><style data-shopify>.header {
-    padding: 10px 3rem 10px 3rem;
-  }
-
-  .section-header {
-    position: sticky; /* This is for fixing a Safari z-index issue. PR #2147 */
-    margin-bottom: 0px;
-  }
-
-  @media screen and (min-width: 750px) {
-    .section-header {
-      margin-bottom: 0px;
-    }
-  }
-
-  @media screen and (min-width: 990px) {
-    .header {
-      padding-top: 20px;
-      padding-bottom: 20px;
-    }
-  }</style><script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/details-disclosure.js?v=13653116266235556501710963316" defer="defer"></script>
-<script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/details-modal.js?v=25581673532751508451710963316" defer="defer"></script>
-<script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/cart-notification.js?v=133508293167896966491710963315" defer="defer"></script>
-<script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/search-form.js?v=133129549252120666541710963316" defer="defer"></script><svg xmlns="http://www.w3.org/2000/svg" class="hidden">
-  <symbol id="icon-search" viewbox="0 0 18 19" fill="none">
-    <path fill-rule="evenodd" clip-rule="evenodd" d="M11.03 11.68A5.784 5.784 0 112.85 3.5a5.784 5.784 0 018.18 8.18zm.26 1.12a6.78 6.78 0 11.72-.7l5.4 5.4a.5.5 0 11-.71.7l-5.41-5.4z" fill="currentColor"/>
-  </symbol>
-
-  <symbol id="icon-reset" class="icon icon-close"  fill="none" viewBox="0 0 18 18" stroke="currentColor">
-    <circle r="8.5" cy="9" cx="9" stroke-opacity="0.2"/>
-    <path d="M6.82972 6.82915L1.17193 1.17097" stroke-linecap="round" stroke-linejoin="round" transform="translate(5 5)"/>
-    <path d="M1.22896 6.88502L6.77288 1.11523" stroke-linecap="round" stroke-linejoin="round" transform="translate(5 5)"/>
-  </symbol>
-
-  <symbol id="icon-close" class="icon icon-close" fill="none" viewBox="0 0 18 17">
-    <path d="M.865 15.978a.5.5 0 00.707.707l7.433-7.431 7.579 7.282a.501.501 0 00.846-.37.5.5 0 00-.153-.351L9.712 8.546l7.417-7.416a.5.5 0 10-.707-.708L8.991 7.853 1.413.573a.5.5 0 10-.693.72l7.563 7.268-7.418 7.417z" fill="currentColor">
-  </symbol>
-</svg><sticky-header data-sticky-type="on-scroll-up" class="header-wrapper color-scheme-1 gradient header-wrapper--border-bottom"><header class="header header--middle-left header--mobile-center page-width header--has-menu">
-
-<header-drawer data-breakpoint="tablet">
-  <details id="Details-menu-drawer-container" class="menu-drawer-container">
-    <summary
-      class="header__icon header__icon--menu header__icon--summary link focus-inset"
-      aria-label="Menu"
-    >
-      <span>
-        <svg
-  xmlns="http://www.w3.org/2000/svg"
-  aria-hidden="true"
-  focusable="false"
-  class="icon icon-hamburger"
-  fill="none"
-  viewBox="0 0 18 16"
->
-  <path d="M1 .5a.5.5 0 100 1h15.71a.5.5 0 000-1H1zM.5 8a.5.5 0 01.5-.5h15.71a.5.5 0 010 1H1A.5.5 0 01.5 8zm0 7a.5.5 0 01.5-.5h15.71a.5.5 0 010 1H1a.5.5 0 01-.5-.5z" fill="currentColor">
-</svg>
-
-        <svg
-  xmlns="http://www.w3.org/2000/svg"
-  aria-hidden="true"
-  focusable="false"
-  class="icon icon-close"
-  fill="none"
-  viewBox="0 0 18 17"
->
-  <path d="M.865 15.978a.5.5 0 00.707.707l7.433-7.431 7.579 7.282a.501.501 0 00.846-.37.5.5 0 00-.153-.351L9.712 8.546l7.417-7.416a.5.5 0 10-.707-.708L8.991 7.853 1.413.573a.5.5 0 10-.693.72l7.563 7.268-7.418 7.417z" fill="currentColor">
-</svg>
-
-      </span>
-    </summary>
-    <div id="menu-drawer" class="gradient menu-drawer motion-reduce color-scheme-1">
-      <div class="menu-drawer__inner-container">
-        <div class="menu-drawer__navigation-container">
-          <nav class="menu-drawer__navigation">
-            <ul class="menu-drawer__menu has-submenu list-menu" role="list"><li><a
-                      id="HeaderDrawer-home"
-                      href="/"
-                      class="menu-drawer__menu-item list-menu__item link link--text focus-inset"
-                      
-                    >
-                      Home
-                    </a></li><li><a
-                      id="HeaderDrawer-catalog"
-                      href="/collections/all"
-                      class="menu-drawer__menu-item list-menu__item link link--text focus-inset"
-                      
-                    >
-                      Catalog
-                    </a></li><li><a
-                      id="HeaderDrawer-contact"
-                      href="/pages/contact"
-                      class="menu-drawer__menu-item list-menu__item link link--text focus-inset"
-                      
-                    >
-                      Contact
-                    </a></li></ul>
-          </nav>
-          <div class="menu-drawer__utility-links"><div class="menu-drawer__localization header-localization">
-</div><ul class="list list-social list-unstyled" role="list"></ul>
-          </div>
-        </div>
-      </div>
-    </div>
-  </details>
-</header-drawer>
-<a href="/" class="header__heading-link link link--text focus-inset"><span class="h2">Rajajudi33</span></a>
-
-<nav class="header__inline-menu">
-  <ul class="list-menu list-menu--inline" role="list"><li><a
-            id="HeaderMenu-home"
-            href="/"
-            class="header__menu-item list-menu__item link link--text focus-inset"
-            
-          >
-            <span
-            >Home</span>
-          </a></li><li><a
-            id="HeaderMenu-catalog"
-            href="/collections/all"
-            class="header__menu-item list-menu__item link link--text focus-inset"
-            
-          >
-            <span
-            >Catalog</span>
-          </a></li><li><a
-            id="HeaderMenu-contact"
-            href="/pages/contact"
-            class="header__menu-item list-menu__item link link--text focus-inset"
-            
-          >
-            <span
-            >Contact</span>
-          </a></li></ul>
-</nav>
-
-<div class="header__icons header__icons--localization header-localization">
-      <div class="desktop-localization-wrapper">
-</div>
-      
-
-<details-modal class="header__search">
-  <details>
-    <summary
-      class="header__icon header__icon--search header__icon--summary link focus-inset modal__toggle"
-      aria-haspopup="dialog"
-      aria-label="Search"
-    >
-      <span>
-        <svg class="modal__toggle-open icon icon-search" aria-hidden="true" focusable="false">
-          <use href="#icon-search">
-        </svg>
-        <svg class="modal__toggle-close icon icon-close" aria-hidden="true" focusable="false">
-          <use href="#icon-close">
-        </svg>
-      </span>
-    </summary>
-    <div
-      class="search-modal modal__content gradient"
-      role="dialog"
-      aria-modal="true"
-      aria-label="Search"
-    >
-      <div class="modal-overlay"></div>
-      <div
-        class="search-modal__content search-modal__content-bottom"
-        tabindex="-1"
-      ><predictive-search class="search-modal__form" data-loading-text="Loading..."><form action="/search" method="get" role="search" class="search search-modal__form">
-          <div class="field">
-            <input
-              class="search__input field__input"
-              id="Search-In-Modal"
-              type="search"
-              name="q"
-              value=""
-              placeholder="Search"role="combobox"
-                aria-expanded="false"
-                aria-owns="predictive-search-results"
-                aria-controls="predictive-search-results"
-                aria-haspopup="listbox"
-                aria-autocomplete="list"
-                autocorrect="off"
-                autocomplete="off"
-                autocapitalize="off"
-                spellcheck="false">
-            <label class="field__label" for="Search-In-Modal">Search</label>
-            <input type="hidden" name="options[prefix]" value="last">
-            <button
-              type="reset"
-              class="reset__button field__button hidden"
-              aria-label="Clear search term"
-            >
-              <svg class="icon icon-close" aria-hidden="true" focusable="false">
-                <use xlink:href="#icon-reset">
-              </svg>
-            </button>
-            <button class="search__button field__button" aria-label="Search">
-              <svg class="icon icon-search" aria-hidden="true" focusable="false">
-                <use href="#icon-search">
-              </svg>
-            </button>
-          </div><div class="predictive-search predictive-search--header" tabindex="-1" data-predictive-search>
-
-<link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-loading-spinner.css?v=116724955567955766481710963315" rel="stylesheet" type="text/css" media="all" />
-
-<div class="predictive-search__loading-state">
-  <svg
-    aria-hidden="true"
-    focusable="false"
-    class="spinner"
-    viewBox="0 0 66 66"
-    xmlns="http://www.w3.org/2000/svg"
-  >
-    <circle class="path" fill="none" stroke-width="6" cx="33" cy="33" r="30"></circle>
-  </svg>
-</div>
-</div>
-
-            <span class="predictive-search-status visually-hidden" role="status" aria-hidden="true"></span></form></predictive-search><button
-          type="button"
-          class="search-modal__close-button modal__close-button link link--text focus-inset"
-          aria-label="Close"
-        >
-          <svg class="icon icon-close" aria-hidden="true" focusable="false">
-            <use href="#icon-close">
-          </svg>
-        </button>
-      </div>
-    </div>
-  </details>
-</details-modal>
-
-<a href="/cart" class="header__icon header__icon--cart link focus-inset" id="cart-icon-bubble"><svg
-  class="icon icon-cart-empty"
-  aria-hidden="true"
-  focusable="false"
-  xmlns="http://www.w3.org/2000/svg"
-  viewBox="0 0 40 40"
-  fill="none"
->
-  <path d="m15.75 11.8h-3.16l-.77 11.6a5 5 0 0 0 4.99 5.34h7.38a5 5 0 0 0 4.99-5.33l-.78-11.61zm0 1h-2.22l-.71 10.67a4 4 0 0 0 3.99 4.27h7.38a4 4 0 0 0 4-4.27l-.72-10.67h-2.22v.63a4.75 4.75 0 1 1 -9.5 0zm8.5 0h-7.5v.63a3.75 3.75 0 1 0 7.5 0z" fill="currentColor" fill-rule="evenodd"/>
-</svg>
-<span class="visually-hidden">Cart</span></a>
-    </div>
-  </header>
-</sticky-header>
-
-<cart-notification>
-  <div class="cart-notification-wrapper page-width">
-    <div
-      id="cart-notification"
-      class="cart-notification focus-inset color-scheme-1 gradient"
-      aria-modal="true"
-      aria-label="Item added to your cart"
-      role="dialog"
-      tabindex="-1"
-    >
-      <div class="cart-notification__header">
-        <h2 class="cart-notification__heading caption-large text-body"><svg
-  class="icon icon-checkmark"
-  aria-hidden="true"
-  focusable="false"
-  xmlns="http://www.w3.org/2000/svg"
-  viewBox="0 0 12 9"
-  fill="none"
->
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M11.35.643a.5.5 0 01.006.707l-6.77 6.886a.5.5 0 01-.719-.006L.638 4.845a.5.5 0 11.724-.69l2.872 3.011 6.41-6.517a.5.5 0 01.707-.006h-.001z" fill="currentColor"/>
-</svg>
-Item added to your cart
-        </h2>
-        <button
-          type="button"
-          class="cart-notification__close modal__close-button link link--text focus-inset"
-          aria-label="Close"
-        >
-          <svg class="icon icon-close" aria-hidden="true" focusable="false">
-            <use href="#icon-close">
-          </svg>
-        </button>
-      </div>
-      <div id="cart-notification-product" class="cart-notification-product"></div>
-      <div class="cart-notification__links">
-        <a
-          href="/cart"
-          id="cart-notification-button"
-          class="button button--secondary button--full-width"
-        >View cart</a>
-        <form action="/cart" method="post" id="cart-notification-form">
-          <button class="button button--primary button--full-width" name="checkout">
-            Check out
-          </button>
-        </form>
-        <button type="button" class="link button-label">Continue shopping</button>
-      </div>
-    </div>
-  </div>
-</cart-notification>
-<style data-shopify>
-  .cart-notification {
-    display: none;
-  }
+@supports (-webkit-backdrop-filter: none) or (backdrop-filter: none) {
+.header-blur-background {
+}
+}
 </style>
-
-
-<script type="application/ld+json">
-  {
-    "@context": "http://schema.org",
-    "@type": "Organization",
-    "name": "Rajajudi33",
-    
-    "sameAs": [
-      "",
-      "",
-      "",
-      "",
-      "",
-      "",
-      "",
-      "",
-      ""
-    ],
-    "url": "https:\/\/3dd60a-f6.myshopify.com"
-  }
-</script>
-</div>
-<!-- END sections: header-group -->
-
-    <main id="MainContent" class="content-for-layout focus-none" role="main" tabindex="-1">
-      <section id="shopify-section-template--17631748915450__main" class="shopify-section section"><section
-  id="MainProduct-template--17631748915450__main"
-  class="section-template--17631748915450__main-padding gradient color-scheme-1"
-  data-section="template--17631748915450__main"
->
-  <link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/section-main-product.css?v=133064301994206342221710963316" rel="stylesheet" type="text/css" media="all" />
-  <link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-accordion.css?v=180964204318874863811710963315" rel="stylesheet" type="text/css" media="all" />
-  <link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-price.css?v=70172745017360139101710963316" rel="stylesheet" type="text/css" media="all" />
-  <link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-slider.css?v=142503135496229589681710963316" rel="stylesheet" type="text/css" media="all" />
-  <link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-rating.css?v=179577762467860590411710963316" rel="stylesheet" type="text/css" media="all" />
-  <link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-deferred-media.css?v=14096082462203297471710963315" rel="stylesheet" type="text/css" media="all" />
-  
-<style data-shopify>.section-template--17631748915450__main-padding {
-      padding-top: 27px;
-      padding-bottom: 9px;
-    }
-
-    @media screen and (min-width: 750px) {
-      .section-template--17631748915450__main-padding {
-        padding-top: 36px;
-        padding-bottom: 12px;
-      }
-    }</style><script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/product-info.js?v=125122232605238659181710963316" defer="defer"></script>
-  <script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/product-form.js?v=133081758708377679181710963316" defer="defer"></script>
-
-  <div class="page-width">
-    <div class="product product--large product--left product--stacked product--mobile-hide grid grid--1-col grid--2-col-tablet">
-      <div class="grid__item product__media-wrapper">
-        
-<media-gallery
-  id="MediaGallery-template--17631748915450__main"
-  role="region"
-  
-    class="product__column-sticky"
-  
-  aria-label="Gallery Viewer"
-  data-desktop-layout="stacked"
->
-  <div id="GalleryStatus-template--17631748915450__main" class="visually-hidden" role="status"></div>
-  <slider-component id="GalleryViewer-template--17631748915450__main" class="slider-mobile-gutter"><a class="skip-to-content-link button visually-hidden quick-add-hidden" href="#ProductInfo-template--17631748915450__main">
-        Skip to product information
-      </a><ul
-      id="Slider-Gallery-template--17631748915450__main"
-      class="product__media-list contains-media grid grid--peek list-unstyled slider slider--mobile"
-      role="list"
-    ><li
-            id="Slide-template--17631748915450__main-33423225913594"
-            class="product__media-item grid__item slider__slide is-active scroll-trigger animate--fade-in"
-            data-media-id="template--17631748915450__main-33423225913594"
-          >
-
 <div
-  class="product-media-container media-type-image media-fit-contain global-media-settings gradient constrain-height"
-  style="--ratio: 1.0; --preview-ratio: 1.0;"
->
-  <noscript><div class="product__media media">
-        <img src="//3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=1946" alt="" srcset="//3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=246 246w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=493 493w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=600 600w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=713 713w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=823 823w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=990 990w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=1100 1100w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=1206 1206w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=1346 1346w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=1426 1426w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=1646 1646w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=1946 1946w" width="1946" height="1946" sizes="(min-width: 1200px) 715px, (min-width: 990px) calc(65.0vw - 10rem), (min-width: 750px) calc((100vw - 11.5rem) / 2), calc(100vw / 1 - 4rem)">
-      </div></noscript>
-
-  <modal-opener class="product__modal-opener product__modal-opener--image no-js-hidden" data-modal="#ProductModal-template--17631748915450__main">
-    <span class="product__media-icon motion-reduce quick-add-hidden product__media-icon--lightbox" aria-hidden="true"><svg
-  aria-hidden="true"
-  focusable="false"
-  class="icon icon-plus"
-  width="19"
-  height="19"
-  viewBox="0 0 19 19"
-  fill="none"
-  xmlns="http://www.w3.org/2000/svg"
->
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M4.66724 7.93978C4.66655 7.66364 4.88984 7.43922 5.16598 7.43853L10.6996 7.42464C10.9758 7.42395 11.2002 7.64724 11.2009 7.92339C11.2016 8.19953 10.9783 8.42395 10.7021 8.42464L5.16849 8.43852C4.89235 8.43922 4.66793 8.21592 4.66724 7.93978Z" fill="currentColor"/>
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M7.92576 4.66463C8.2019 4.66394 8.42632 4.88723 8.42702 5.16337L8.4409 10.697C8.44159 10.9732 8.2183 11.1976 7.94215 11.1983C7.66601 11.199 7.44159 10.9757 7.4409 10.6995L7.42702 5.16588C7.42633 4.88974 7.64962 4.66532 7.92576 4.66463Z" fill="currentColor"/>
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M12.8324 3.03011C10.1255 0.323296 5.73693 0.323296 3.03011 3.03011C0.323296 5.73693 0.323296 10.1256 3.03011 12.8324C5.73693 15.5392 10.1255 15.5392 12.8324 12.8324C15.5392 10.1256 15.5392 5.73693 12.8324 3.03011ZM2.32301 2.32301C5.42035 -0.774336 10.4421 -0.774336 13.5395 2.32301C16.6101 5.39361 16.6366 10.3556 13.619 13.4588L18.2473 18.0871C18.4426 18.2824 18.4426 18.599 18.2473 18.7943C18.0521 18.9895 17.7355 18.9895 17.5402 18.7943L12.8778 14.1318C9.76383 16.6223 5.20839 16.4249 2.32301 13.5395C-0.774335 10.4421 -0.774335 5.42035 2.32301 2.32301Z" fill="currentColor"/>
-</svg>
-</span>
-
-<link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-loading-spinner.css?v=116724955567955766481710963315" rel="stylesheet" type="text/css" media="all" />
-
-<div class="loading__spinner hidden">
-  <svg
-    aria-hidden="true"
-    focusable="false"
-    class="spinner"
-    viewBox="0 0 66 66"
-    xmlns="http://www.w3.org/2000/svg"
-  >
-    <circle class="path" fill="none" stroke-width="6" cx="33" cy="33" r="30"></circle>
-  </svg>
-</div>
-<div class="product__media media media--transparent">
-      <img src="//3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=1946" alt="" srcset="//3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=246 246w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=493 493w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=600 600w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=713 713w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=823 823w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=990 990w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=1100 1100w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=1206 1206w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=1346 1346w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=1426 1426w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=1646 1646w, //3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&amp;width=1946 1946w" width="1946" height="1946" class="image-magnify-lightbox" sizes="(min-width: 1200px) 715px, (min-width: 990px) calc(65.0vw - 10rem), (min-width: 750px) calc((100vw - 11.5rem) / 2), calc(100vw / 1 - 4rem)">
-    </div>
-    <button class="product__media-toggle quick-add-hidden product__media-zoom-lightbox" type="button" aria-haspopup="dialog" data-media-id="33423225913594">
-      <span class="visually-hidden">
-        Open media 1 in modal
-      </span>
-    </button>
-  </modal-opener></div>
-
-          </li></ul><div class="slider-buttons no-js-hidden quick-add-hidden small-hide">
-        <button
-          type="button"
-          class="slider-button slider-button--prev"
-          name="previous"
-          aria-label="Slide left"
-        >
-          <svg aria-hidden="true" focusable="false" class="icon icon-caret" viewBox="0 0 10 6">
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M9.354.646a.5.5 0 00-.708 0L5 4.293 1.354.646a.5.5 0 00-.708.708l4 4a.5.5 0 00.708 0l4-4a.5.5 0 000-.708z" fill="currentColor">
-</svg>
-
-        </button>
-        <div class="slider-counter caption">
-          <span class="slider-counter--current">1</span>
-          <span aria-hidden="true"> / </span>
-          <span class="visually-hidden">of</span>
-          <span class="slider-counter--total">1</span>
-        </div>
-        <button
-          type="button"
-          class="slider-button slider-button--next"
-          name="next"
-          aria-label="Slide right"
-        >
-          <svg aria-hidden="true" focusable="false" class="icon icon-caret" viewBox="0 0 10 6">
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M9.354.646a.5.5 0 00-.708 0L5 4.293 1.354.646a.5.5 0 00-.708.708l4 4a.5.5 0 00.708 0l4-4a.5.5 0 000-.708z" fill="currentColor">
-</svg>
-
-        </button>
-      </div></slider-component></media-gallery>
-
-      </div>
-      <div class="product__info-wrapper grid__item scroll-trigger animate--slide-in">
-        <product-info
-          id="ProductInfo-template--17631748915450__main"
-          data-section="template--17631748915450__main"
-          data-url="/products/Rajajudi33"
-          class="product__info-container product__column-sticky"
-        ><p
-                  class="product__text inline-richtext caption-with-letter-spacing"
-                  
-                >My Store</p><div class="product__title" >
-                  <h1>Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024</h1>
-                  <a href="/products/Rajajudi33" class="product__title">
-                    <h2 class="h1">
-                      Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024
-                    </h2>
-                  </a>
-                </div><div class="no-js-hidden" id="price-template--17631748915450__main" role="status" >
+class="header-border"
+data-header-style="dynamic"
+data-header-usability-enabled="true"
+data-header-border="false"
+data-test="header-border"
+style="
+border-width: 0px !important;
+"
+></div>
 <div
-  class="
-    price price--large price--sold-out price--show-badge"
+class="header-dropshadow"
+data-header-style="dynamic"
+data-header-usability-enabled="true"
+data-header-dropshadow="false"
+data-test="header-dropshadow"
+style="
+"
+></div>
+<div class='header-inner container--fluid
+header-mobile-layout-logo-left-nav-right
+header-layout-branding-center-nav-center
+'
+style="
+padding: 0;
+"
+data-test="header-inner"
 >
-  <div class="price__container"><div class="price__regular"><span class="visually-hidden visually-hidden--inline">Regular price</span>
-        <span class="price-item price-item--regular">
-          $0.00 AUD
-        </span></div>
-    <div class="price__sale">
-        <span class="visually-hidden visually-hidden--inline">Regular price</span>
-        <span>
-          <s class="price-item price-item--regular">
-            
-              
-            
-          </s>
-        </span><span class="visually-hidden visually-hidden--inline">Sale price</span>
-      <span class="price-item price-item--sale price-item--last">
-        $0.00 AUD
-      </span>
-    </div>
-    <small class="unit-price caption hidden">
-      <span class="visually-hidden">Unit price</span>
-      <span class="price-item price-item--last">
-        <span></span>
-        <span aria-hidden="true">/</span>
-        <span class="visually-hidden">&nbsp;per&nbsp;</span>
-        <span>
-        </span>
-      </span>
-    </small>
-  </div><span class="badge price__badge-sale color-scheme-4">
-      Sale
-    </span>
-
-    <span class="badge price__badge-sold-out color-scheme-3">
-      Sold out
-    </span></div>
-</div><div class="product__tax caption rte"></div>
-                <div ><form method="post" action="/cart/add" id="product-form-installment-template--17631748915450__main" accept-charset="UTF-8" class="installment caption-large" enctype="multipart/form-data"><input type="hidden" name="form_type" value="product" /><input type="hidden" name="utf8" value="✓" /><input type="hidden" name="id" value="45378775974138">
-                    
-<input type="hidden" name="product-id" value="8231701840122" /><input type="hidden" name="section-id" value="template--17631748915450__main" /></form></div>
-<noscript class="product-form__noscript-wrapper-template--17631748915450__main">
-  <div class="product-form__input hidden">
-    <label class="form__label" for="Variants-template--17631748915450__main">Product variants</label>
-    <div class="select">
-      <select
-        name="id"
-        id="Variants-template--17631748915450__main"
-        class="select__select"
-        form="product-form-template--17631748915450__main"
-      ><option
-            
-              selected="selected"
-            
-            
-              disabled
-            
-            value="45378775974138"
-          >Default Title - $0.00 - Sold out</option></select>
-      <svg aria-hidden="true" focusable="false" class="icon icon-caret" viewBox="0 0 10 6">
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M9.354.646a.5.5 0 00-.708 0L5 4.293 1.354.646a.5.5 0 00-.708.708l4 4a.5.5 0 00.708 0l4-4a.5.5 0 000-.708z" fill="currentColor">
-</svg>
-
-    </div>
-  </div>
-</noscript>
-
+<!-- Background -->
+<div class="header-background theme-bg--primary"></div>
+<div class="header-display-desktop" data-content-field="site-title">
+<!-- Social -->
+<!-- Title and nav wrapper -->
+<div class="header-title-nav-wrapper">
+<!-- Title -->
 <div
-                  id="Quantity-Form-template--17631748915450__main"
-                  class="product-form__input product-form__quantity"
-                  
-                >
-                  
-                  
-
-                  <label class="quantity__label form__label" for="Quantity-template--17631748915450__main">
-                    Quantity
-                    <span class="quantity__rules-cart no-js-hidden hidden">
-
-<link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-loading-spinner.css?v=116724955567955766481710963315" rel="stylesheet" type="text/css" media="all" />
-
-<div class="loading__spinner hidden">
-  <svg
-    aria-hidden="true"
-    focusable="false"
-    class="spinner"
-    viewBox="0 0 66 66"
-    xmlns="http://www.w3.org/2000/svg"
-  >
-    <circle class="path" fill="none" stroke-width="6" cx="33" cy="33" r="30"></circle>
-  </svg>
+class="
+header-title
+"
+data-animation-role="header-element"
+>
+<div class="header-title-logo">
+<a href="/" data-animation-role="header-element">
+<img elementtiming="nbf-header-logo-desktop" src="//images.squarespace-cdn.com/content/v1/65fbbddcf5eb7e7df1a835e8/cb7813bc-5e31-4ab6-9426-6fb633489b28/TUAN-MUDA-3-8-2024.png?format=1500w" alt="Rajajudi33" style="display:block" fetchpriority="high" loading="eager" decoding="async" data-loader="raw">
+</a>
 </div>
-<span
-                        >(<span class="quantity-cart">0</span> in cart)</span
-                      >
-                    </span>
-                  </label>
-                  <div class="price-per-item__container">
-                    <quantity-input class="quantity" data-url="/products/Rajajudi33" data-section="template--17631748915450__main">
-                      <button class="quantity__button no-js-hidden" name="minus" type="button">
-                        <span class="visually-hidden">Decrease quantity for Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024</span>
-                        <svg
-  xmlns="http://www.w3.org/2000/svg"
-  aria-hidden="true"
-  focusable="false"
-  class="icon icon-minus"
-  fill="none"
-  viewBox="0 0 10 2"
->
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M.5 1C.5.7.7.5 1 .5h8a.5.5 0 110 1H1A.5.5 0 01.5 1z" fill="currentColor">
-</svg>
-
-                      </button>
-                      <input
-                        class="quantity__input"
-                        type="number"
-                        name="quantity"
-                        id="Quantity-template--17631748915450__main"
-                        data-cart-quantity="0"
-                        data-min="1"
-                        min="1"
-                        
-                        step="1"
-                        value="1"
-                        form="product-form-template--17631748915450__main"
-                      >
-                      <button class="quantity__button no-js-hidden" name="plus" type="button">
-                        <span class="visually-hidden">Increase quantity for Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024</span>
-                        <svg
-  xmlns="http://www.w3.org/2000/svg"
-  aria-hidden="true"
-  focusable="false"
-  class="icon icon-plus"
-  fill="none"
-  viewBox="0 0 10 10"
->
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M1 4.51a.5.5 0 000 1h3.5l.01 3.5a.5.5 0 001-.01V5.5l3.5-.01a.5.5 0 00-.01-1H5.5L5.49.99a.5.5 0 00-1 .01v3.5l-3.5.01H1z" fill="currentColor">
-</svg>
-
-                      </button>
-                    </quantity-input></div>
-                  <div class="quantity__rules caption no-js-hidden" id="Quantity-Rules-template--17631748915450__main"></div></div>
-<div ><product-form
-      class="product-form"
-      data-hide-errors="false"
-      data-section-id="template--17631748915450__main"
-    >
-      <div class="product-form__error-message-wrapper" role="alert" hidden>
-        <svg
-          aria-hidden="true"
-          focusable="false"
-          class="icon icon-error"
-          viewBox="0 0 13 13"
-        >
-          <circle cx="6.5" cy="6.50049" r="5.5" stroke="white" stroke-width="2"/>
-          <circle cx="6.5" cy="6.5" r="5.5" fill="#EB001B" stroke="#EB001B" stroke-width="0.7"/>
-          <path d="M5.87413 3.52832L5.97439 7.57216H7.02713L7.12739 3.52832H5.87413ZM6.50076 9.66091C6.88091 9.66091 7.18169 9.37267 7.18169 9.00504C7.18169 8.63742 6.88091 8.34917 6.50076 8.34917C6.12061 8.34917 5.81982 8.63742 5.81982 9.00504C5.81982 9.37267 6.12061 9.66091 6.50076 9.66091Z" fill="white"/>
-          <path d="M5.87413 3.17832H5.51535L5.52424 3.537L5.6245 7.58083L5.63296 7.92216H5.97439H7.02713H7.36856L7.37702 7.58083L7.47728 3.537L7.48617 3.17832H7.12739H5.87413ZM6.50076 10.0109C7.06121 10.0109 7.5317 9.57872 7.5317 9.00504C7.5317 8.43137 7.06121 7.99918 6.50076 7.99918C5.94031 7.99918 5.46982 8.43137 5.46982 9.00504C5.46982 9.57872 5.94031 10.0109 6.50076 10.0109Z" fill="white" stroke="#EB001B" stroke-width="0.7">
-        </svg>
-        <span class="product-form__error-message"></span>
-      </div><form method="post" action="/cart/add" id="product-form-template--17631748915450__main" accept-charset="UTF-8" class="form" enctype="multipart/form-data" novalidate="novalidate" data-type="add-to-cart-form"><input type="hidden" name="form_type" value="product" /><input type="hidden" name="utf8" value="✓" /><input
-          type="hidden"
-          name="id"
-          value="45378775974138"
-          
-            disabled
-          
-          class="product-variant-id"
-        ><div class="product-form__buttons"><button
-            id="ProductSubmitButton-template--17631748915450__main"
-            type="submit"
-            name="add"
-            class="product-form__submit button button--full-width button--secondary"
-            
-              disabled
-            
-          >
-            <span>Sold out
-</span>
-
-<link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-loading-spinner.css?v=116724955567955766481710963315" rel="stylesheet" type="text/css" media="all" />
-
-<div class="loading__spinner hidden">
-  <svg
-    aria-hidden="true"
-    focusable="false"
-    class="spinner"
-    viewBox="0 0 66 66"
-    xmlns="http://www.w3.org/2000/svg"
-  >
-    <circle class="path" fill="none" stroke-width="6" cx="33" cy="33" r="30"></circle>
-  </svg>
 </div>
-</button><div data-shopify="payment-button" data-has-selling-plan="false" data-has-fixed-selling-plan="false" data-customer-accounts-required="false" class="shopify-payment-button"><button class="shopify-payment-button__button shopify-payment-button__button--unbranded shopify-payment-button__button--hidden" disabled="disabled" aria-hidden="true"> </button><button class="shopify-payment-button__more-options shopify-payment-button__button--hidden" disabled="disabled" aria-hidden="true"> </button></div>
-</div><input type="hidden" name="product-id" value="8231701840122" /><input type="hidden" name="section-id" value="template--17631748915450__main" /></form></product-form><link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-pickup-availability.css?v=34645222959864780961710963316" rel="stylesheet" type="text/css" media="all" />
-<pickup-availability
-      class="product__pickup-availabilities no-js-hidden quick-add-hidden"
-      
-      data-root-url="/"
-      data-variant-id="45378775974138"
-      data-has-only-default-variant="true"
-      data-product-page-color-scheme="gradient color-scheme-1"
-    >
-      <template>
-        <pickup-availability-preview class="pickup-availability-preview">
-          <svg
-  xmlns="http://www.w3.org/2000/svg"
-  fill="none"
-  aria-hidden="true"
-  focusable="false"
-  class="icon icon-unavailable"
-  fill="none"
-  viewBox="0 0 20 20"
+<!-- Nav -->
+<div class="header-nav">
+<div class="header-nav-wrapper">
+<nav class="header-nav-list">
+<div class="header-nav-item header-nav-item--collection header-nav-item--active header-nav-item--homepage">
+<a
+href="/"
+data-animation-role="header-element"
+aria-current="page"
 >
-  <path fill="#DE3618" stroke="#fff" d="M13.94 3.94L10 7.878l-3.94-3.94A1.499 1.499 0 103.94 6.06L7.88 10l-3.94 3.94a1.499 1.499 0 102.12 2.12L10 12.12l3.94 3.94a1.497 1.497 0 002.12 0 1.499 1.499 0 000-2.12L12.122 10l3.94-3.94a1.499 1.499 0 10-2.121-2.12z"/>
-</svg>
-
-          <div class="pickup-availability-info">
-            <p class="caption-large">Couldn&#39;t load pickup availability</p>
-            <button class="pickup-availability-button link link--text underlined-link">
-              Refresh
-            </button>
-          </div>
-        </pickup-availability-preview>
-      </template>
-    </pickup-availability>
-
-    <script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/pickup-availability.js?v=66138958121968076331710963316" defer="defer"></script></div>
-<div class="product__description rte quick-add-hidden" >
-                    Rajajudi33 merupakan salah satu rekomendasi situs slot gacor resmi yang paling populer tahun 2024, Rajajudi33 menyediakan game slot online gampang menang malam ini dengan tingkat kemenangan paling tinggi.
-                  </div>
-                
-<script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/share.js?v=13024540447964430191710963316" defer="defer"></script>
-
-<share-button id="Share-template--17631748915450__main" class="share-button quick-add-hidden" >
-  <button class="share-button__button hidden">
-    <svg
-  width="13"
-  height="12"
-  viewBox="0 0 13 12"
-  class="icon icon-share"
-  fill="none"
-  xmlns="http://www.w3.org/2000/svg"
-  aria-hidden="true"
-  focusable="false"
+Rajajudi33</a>
+</div>
+<div class="header-nav-item header-nav-item--collection">
+<a
+href="/services"
+data-animation-role="header-element"
 >
-  <path d="M1.625 8.125V10.2917C1.625 10.579 1.73914 10.8545 1.9423 11.0577C2.14547 11.2609 2.42102 11.375 2.70833 11.375H10.2917C10.579 11.375 10.8545 11.2609 11.0577 11.0577C11.2609 10.8545 11.375 10.579 11.375 10.2917V8.125" stroke="currentColor" stroke-linecap="round" stroke-linejoin="round"/>
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M6.14775 1.27137C6.34301 1.0761 6.65959 1.0761 6.85485 1.27137L9.56319 3.9797C9.75845 4.17496 9.75845 4.49154 9.56319 4.6868C9.36793 4.88207 9.05135 4.88207 8.85609 4.6868L6.5013 2.33203L4.14652 4.6868C3.95126 4.88207 3.63468 4.88207 3.43942 4.6868C3.24415 4.49154 3.24415 4.17496 3.43942 3.9797L6.14775 1.27137Z" fill="currentColor"/>
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M6.5 1.125C6.77614 1.125 7 1.34886 7 1.625V8.125C7 8.40114 6.77614 8.625 6.5 8.625C6.22386 8.625 6 8.40114 6 8.125V1.625C6 1.34886 6.22386 1.125 6.5 1.125Z" fill="currentColor"/>
-</svg>
-
-    Share
-  </button>
-  <details id="Details-share-template--17631748915450__main">
-    <summary class="share-button__button">
-      <svg
-  width="13"
-  height="12"
-  viewBox="0 0 13 12"
-  class="icon icon-share"
-  fill="none"
-  xmlns="http://www.w3.org/2000/svg"
-  aria-hidden="true"
-  focusable="false"
+SLOT GACOR MALAM INI
+</a>
+</div>
+<div class="header-nav-item header-nav-item--collection">
+<a
+href="/courses"
+data-animation-role="header-element"
 >
-  <path d="M1.625 8.125V10.2917C1.625 10.579 1.73914 10.8545 1.9423 11.0577C2.14547 11.2609 2.42102 11.375 2.70833 11.375H10.2917C10.579 11.375 10.8545 11.2609 11.0577 11.0577C11.2609 10.8545 11.375 10.579 11.375 10.2917V8.125" stroke="currentColor" stroke-linecap="round" stroke-linejoin="round"/>
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M6.14775 1.27137C6.34301 1.0761 6.65959 1.0761 6.85485 1.27137L9.56319 3.9797C9.75845 4.17496 9.75845 4.49154 9.56319 4.6868C9.36793 4.88207 9.05135 4.88207 8.85609 4.6868L6.5013 2.33203L4.14652 4.6868C3.95126 4.88207 3.63468 4.88207 3.43942 4.6868C3.24415 4.49154 3.24415 4.17496 3.43942 3.9797L6.14775 1.27137Z" fill="currentColor"/>
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M6.5 1.125C6.77614 1.125 7 1.34886 7 1.625V8.125C7 8.40114 6.77614 8.625 6.5 8.625C6.22386 8.625 6 8.40114 6 8.125V1.625C6 1.34886 6.22386 1.125 6.5 1.125Z" fill="currentColor"/>
-</svg>
-
-      Share
-    </summary>
-    <div class="share-button__fallback motion-reduce">
-      <div class="field">
-        <span id="ShareMessage-template--17631748915450__main" class="share-button__message hidden" role="status"> </span>
-        <input
-          type="text"
-          class="field__input"
-          id="ShareUrl-template--17631748915450__main"
-          value="https://3dd60a-f6.myshopify.com/products/Rajajudi33"
-          placeholder="Link"
-          onclick="this.select();"
-          readonly
-        >
-        <label class="field__label" for="ShareUrl-template--17631748915450__main">Link</label>
-      </div>
-      <button class="share-button__close hidden no-js-hidden">
-        <svg
-  xmlns="http://www.w3.org/2000/svg"
-  aria-hidden="true"
-  focusable="false"
-  class="icon icon-close"
-  fill="none"
-  viewBox="0 0 18 17"
+SLOT GACOR 4D
+</a>
+</div>
+</nav>
+</div>
+</div>
+</div>
+<!-- Actions -->
+<div class="header-actions header-actions--right">
+<div class="showOnMobile">
+</div>
+<div class="showOnDesktop">
+</div>
+<div class="header-actions-action header-actions-action--cta" data-animation-role="header-element">
+<a
+class="btn btn--border theme-btn--primary-inverse sqs-button-element--primary"
+href="/appointments"
 >
-  <path d="M.865 15.978a.5.5 0 00.707.707l7.433-7.431 7.579 7.282a.501.501 0 00.846-.37.5.5 0 00-.153-.351L9.712 8.546l7.417-7.416a.5.5 0 10-.707-.708L8.991 7.853 1.413.573a.5.5 0 10-.693.72l7.563 7.268-7.418 7.417z" fill="currentColor">
-</svg>
-
-        <span class="visually-hidden">Close share</span>
-      </button>
-      <button class="share-button__copy no-js-hidden">
-        <svg
-  class="icon icon-clipboard"
-  width="11"
-  height="13"
-  fill="none"
-  xmlns="http://www.w3.org/2000/svg"
-  aria-hidden="true"
-  focusable="false"
-  viewBox="0 0 11 13"
+LINK SLOT GACOR
+</a>
+</div>
+</div>
+<style>
+.top-bun, 
+.patty, 
+.bottom-bun {
+height: 2px;
+}
+</style>
+<!-- Burger -->
+<div class="header-burger
+menu-overlay-has-visible-non-navigation-items
+" data-animation-role="header-element">
+<button class="header-burger-btn burger" data-test="header-burger">
+<span hidden class="js-header-burger-open-title visually-hidden">Open Menu</span>
+<span hidden class="js-header-burger-close-title visually-hidden">Close Menu</span>
+<div class="burger-box">
+<div class="burger-inner header-menu-icon-doubleLineHamburger">
+<div class="top-bun"></div>
+<div class="patty"></div>
+<div class="bottom-bun"></div>
+</div>
+</div>
+</button>
+</div>
+</div>
+<div class="header-display-mobile" data-content-field="site-title">
+<!-- Social -->
+<!-- Title and nav wrapper -->
+<div class="header-title-nav-wrapper">
+<!-- Title -->
+<div
+class="
+header-title
+"
+data-animation-role="header-element"
 >
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M2 1a1 1 0 011-1h7a1 1 0 011 1v9a1 1 0 01-1 1V1H2zM1 2a1 1 0 00-1 1v9a1 1 0 001 1h7a1 1 0 001-1V3a1 1 0 00-1-1H1zm0 10V3h7v9H1z" fill="currentColor"/>
-</svg>
-
-        <span class="visually-hidden">Copy link</span>
-      </button>
-    </div>
-  </details>
-</share-button>
-
-<a href="/products/Rajajudi33" class="link product__view-details animate-arrow">
-            View full details
-            <svg
-  viewBox="0 0 14 10"
-  fill="none"
-  aria-hidden="true"
-  focusable="false"
-  class="icon icon-arrow"
-  xmlns="http://www.w3.org/2000/svg"
+<div class="header-title-logo">
+<a href="/" data-animation-role="header-element">
+<img elementtiming="nbf-header-logo-desktop" src="//images.squarespace-cdn.com/content/v1/65fbbddcf5eb7e7df1a835e8/cb7813bc-5e31-4ab6-9426-6fb633489b28/TUAN-MUDA-3-8-2024.png?format=1500w" alt="Rajajudi33" style="display:block" fetchpriority="high" loading="eager" decoding="async" data-loader="raw">
+</a>
+</div>
+</div>
+<!-- Nav -->
+<div class="header-nav">
+<div class="header-nav-wrapper">
+<nav class="header-nav-list">
+<div class="header-nav-item header-nav-item--collection header-nav-item--active header-nav-item--homepage">
+<a
+href="/"
+data-animation-role="header-element"
+aria-current="page"
 >
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M8.537.808a.5.5 0 01.817-.162l4 4a.5.5 0 010 .708l-4 4a.5.5 0 11-.708-.708L11.793 5.5H1a.5.5 0 010-1h10.793L8.646 1.354a.5.5 0 01-.109-.546z" fill="currentColor">
-</svg>
-
-          </a>
-        </product-info>
-      </div></div>
-
-    
-
-<product-modal id="ProductModal-template--17631748915450__main" class="product-media-modal media-modal">
-  <div
-    class="product-media-modal__dialog color-scheme-1 gradient"
-    role="dialog"
-    aria-label="Media gallery"
-    aria-modal="true"
-    tabindex="-1"
-  >
-    <button
-      id="ModalClose-template--17631748915450__main"
-      type="button"
-      class="product-media-modal__toggle"
-      aria-label="Close"
-    >
-      <svg
-  xmlns="http://www.w3.org/2000/svg"
-  aria-hidden="true"
-  focusable="false"
-  class="icon icon-close"
-  fill="none"
-  viewBox="0 0 18 17"
+Rajajudi33</a>
+</div>
+<div class="header-nav-item header-nav-item--collection">
+<a
+href="/services"
+data-animation-role="header-element"
 >
-  <path d="M.865 15.978a.5.5 0 00.707.707l7.433-7.431 7.579 7.282a.501.501 0 00.846-.37.5.5 0 00-.153-.351L9.712 8.546l7.417-7.416a.5.5 0 10-.707-.708L8.991 7.853 1.413.573a.5.5 0 10-.693.72l7.563 7.268-7.418 7.417z" fill="currentColor">
-</svg>
-
-    </button>
-
-    <div
-      class="product-media-modal__content color-scheme-1 gradient"
-      role="document"
-      aria-label="Media gallery"
-      tabindex="0"
-    >
+SLOT GACOR MALAM INI
+</a>
+</div>
+<div class="header-nav-item header-nav-item--collection">
+<a
+href="/courses"
+data-animation-role="header-element"
+>
+SLOT GACOR 4D
+</a>
+</div>
+</nav>
+</div>
+</div>
+</div>
+<!-- Actions -->
+<div class="header-actions header-actions--right">
+<div class="showOnMobile">
+</div>
+<div class="showOnDesktop">
+</div>
+<div class="header-actions-action header-actions-action--cta" data-animation-role="header-element">
+<a
+class="btn btn--border theme-btn--primary-inverse sqs-button-element--primary"
+href="/appointments"
+>
+LINK SLOT GACOR
+</a>
+</div>
+</div>
+<style>
+.top-bun, 
+.patty, 
+.bottom-bun {
+height: 2px;
+}
+</style>
+<!-- Burger -->
+<div class="header-burger
+menu-overlay-has-visible-non-navigation-items
+" data-animation-role="header-element">
+<button class="header-burger-btn burger" data-test="header-burger">
+<span hidden class="js-header-burger-open-title visually-hidden">Open Menu</span>
+<span hidden class="js-header-burger-close-title visually-hidden">Close Menu</span>
+<div class="burger-box">
+<div class="burger-inner header-menu-icon-doubleLineHamburger">
+<div class="top-bun"></div>
+<div class="patty"></div>
+<div class="bottom-bun"></div>
+</div>
+</div>
+</button>
+</div>
+</div>
+</div>
+</div>
+<!-- (Mobile) Menu Navigation -->
+<div class="header-menu header-menu--folder-list
+light
+"
+data-current-styles="{
+&quot;layout&quot;: &quot;brandingCenterNavCenter&quot;,
+&quot;action&quot;: {
+&quot;href&quot;: &quot;/appointments&quot;,
+&quot;buttonText&quot;: &quot;LINK SLOT GACOR&quot;,
+&quot;newWindow&quot;: false
+},
+&quot;showSocial&quot;: false,
+&quot;socialOptions&quot;: {
+&quot;socialBorderShape&quot;: &quot;none&quot;,
+&quot;socialBorderStyle&quot;: &quot;outline&quot;,
+&quot;socialBorderThickness&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 1.0
+}
+},
+&quot;menuOverlayTheme&quot;: &quot;light&quot;,
+&quot;menuOverlayAnimation&quot;: &quot;fade&quot;,
+&quot;cartStyle&quot;: &quot;text&quot;,
+&quot;cartText&quot;: &quot;Cart&quot;,
+&quot;showEmptyCartState&quot;: true,
+&quot;cartOptions&quot;: {
+&quot;iconType&quot;: &quot;stroke-1&quot;,
+&quot;cartBorderShape&quot;: &quot;none&quot;,
+&quot;cartBorderStyle&quot;: &quot;outline&quot;,
+&quot;cartBorderThickness&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 1.0
+}
+},
+&quot;showButton&quot;: true,
+&quot;showCart&quot;: false,
+&quot;showAccountLogin&quot;: false,
+&quot;headerStyle&quot;: &quot;dynamic&quot;,
+&quot;languagePicker&quot;: {
+&quot;enabled&quot;: false,
+&quot;iconEnabled&quot;: false,
+&quot;iconType&quot;: &quot;globe&quot;,
+&quot;flagShape&quot;: &quot;shiny&quot;,
+&quot;languageFlags&quot;: [ ]
+},
+&quot;mobileOptions&quot;: {
+&quot;layout&quot;: &quot;logoLeftNavRight&quot;,
+&quot;menuIcon&quot;: &quot;halfLineHamburger&quot;,
+&quot;menuIconOptions&quot;: {
+&quot;style&quot;: &quot;doubleLineHamburger&quot;,
+&quot;thickness&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 2.0
+}
+}
+},
+&quot;dynamicOptions&quot;: {
+&quot;border&quot;: {
+&quot;enabled&quot;: false,
+&quot;position&quot;: &quot;allSides&quot;,
+&quot;thickness&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 4.0
+}
+}
+},
+&quot;solidOptions&quot;: {
+&quot;headerOpacity&quot;: {
+&quot;unit&quot;: &quot;%&quot;,
+&quot;value&quot;: 100.0
+},
+&quot;border&quot;: {
+&quot;enabled&quot;: false,
+&quot;position&quot;: &quot;allSides&quot;,
+&quot;thickness&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 4.0
+}
+},
+&quot;dropShadow&quot;: {
+&quot;enabled&quot;: false,
+&quot;blur&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 30.0
+},
+&quot;spread&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 0.0
+},
+&quot;distance&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 0.0
+}
+},
+&quot;blurBackground&quot;: {
+&quot;enabled&quot;: false,
+&quot;blurRadius&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 12.0
+}
+}
+},
+&quot;gradientOptions&quot;: {
+&quot;gradientType&quot;: &quot;faded&quot;,
+&quot;headerOpacity&quot;: {
+&quot;unit&quot;: &quot;%&quot;,
+&quot;value&quot;: 90.0
+},
+&quot;border&quot;: {
+&quot;enabled&quot;: false,
+&quot;position&quot;: &quot;allSides&quot;,
+&quot;thickness&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 4.0
+}
+},
+&quot;dropShadow&quot;: {
+&quot;enabled&quot;: false,
+&quot;blur&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 12.0
+},
+&quot;spread&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 0.0
+},
+&quot;distance&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 12.0
+}
+},
+&quot;blurBackground&quot;: {
+&quot;enabled&quot;: false,
+&quot;blurRadius&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 12.0
+}
+}
+},
+&quot;dropShadowOptions&quot;: {
+&quot;enabled&quot;: false,
+&quot;blur&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 12.0
+},
+&quot;spread&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 0.0
+},
+&quot;distance&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 12.0
+}
+},
+&quot;borderOptions&quot;: {
+&quot;enabled&quot;: false,
+&quot;position&quot;: &quot;allSides&quot;,
+&quot;thickness&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 4.0
+}
+},
+&quot;showPromotedElement&quot;: false,
+&quot;buttonVariant&quot;: &quot;primary&quot;,
+&quot;blurBackground&quot;: {
+&quot;enabled&quot;: false,
+&quot;blurRadius&quot;: {
+&quot;unit&quot;: &quot;px&quot;,
+&quot;value&quot;: 12.0
+}
+},
+&quot;headerOpacity&quot;: {
+&quot;unit&quot;: &quot;%&quot;,
+&quot;value&quot;: 100.0
+}
+}"
+data-section-id="overlay-nav"
+data-show-account-login="false"
+data-test="header-menu">
+<div class="header-menu-bg theme-bg--primary"></div>
+<div class="header-menu-nav">
+<nav class="header-menu-nav-list">
+<div data-folder="root" class="header-menu-nav-folder">
+<div class="header-menu-nav-folder-content">
+<!-- Menu Navigation -->
+<div class="header-menu-nav-wrapper">
+<div class="container header-menu-nav-item header-menu-nav-item--collection header-menu-nav-item--active header-menu-nav-item--homepage">
+<a
+href="/"
+aria-current="page"
+>
+<div class="header-menu-nav-item-content">
+Rajajudi33</div>
+</a>
+</div>
+<div class="container header-menu-nav-item header-menu-nav-item--collection">
+<a
+href="/services"
+>
+<div class="header-menu-nav-item-content">
+SLOT GACOR MALAM INI
+</div>
+</a>
+</div>
+<div class="container header-menu-nav-item header-menu-nav-item--collection">
+<a
+href="/courses"
+>
+<div class="header-menu-nav-item-content">
+SLOT GACOR 4D
+</div>
+</a>
+</div>
+</div>
+</div>
+<div class="header-menu-cta">
+<a
+class="theme-btn--primary btn sqs-button-element--primary"
+href="/appointments"
+>
+LINK SLOT GACOR
+</a>
+</div>
+</div>
+</nav>
+</div>
+</div>
+</header>
+<main id="page" class="container" role="main">
+<article class="sections" id="sections" data-page-sections="65fbbf2044e29218dd8dbfdf">
+<section
+data-test="page-section"
+data-section-theme="light"
+class='page-section 
+content-collection
+full-bleed-section
+collection-type-products
+background-width--full-bleed
+section-height--medium
+content-width--wide
+horizontal-alignment--center
+vertical-alignment--middle
+light'
+data-section-id="65fbbf2044e29218dd8dbfe1"
+data-controller="SectionWrapperController"
+data-current-styles="{
+&quot;imageOverlayOpacity&quot;: 0.15,
+&quot;backgroundWidth&quot;: &quot;background-width--full-bleed&quot;,
+&quot;sectionHeight&quot;: &quot;section-height--medium&quot;,
+&quot;horizontalAlignment&quot;: &quot;horizontal-alignment--center&quot;,
+&quot;verticalAlignment&quot;: &quot;vertical-alignment--middle&quot;,
+&quot;contentWidth&quot;: &quot;content-width--wide&quot;,
+&quot;sectionTheme&quot;: &quot;light&quot;,
+&quot;sectionAnimation&quot;: &quot;none&quot;,
+&quot;backgroundMode&quot;: &quot;image&quot;
+}"
+data-current-context="{
+&quot;video&quot;: {
+&quot;playbackSpeed&quot;: 0.5,
+&quot;filter&quot;: 1,
+&quot;filterStrength&quot;: 0,
+&quot;zoom&quot;: 0,
+&quot;videoSourceProvider&quot;: &quot;none&quot;
+},
+&quot;backgroundImageId&quot;: null,
+&quot;backgroundMediaEffect&quot;: null,
+&quot;divider&quot;: null,
+&quot;typeName&quot;: &quot;products&quot;
+}"
+data-animation="none"
+>
+<div
+class="section-border" 
+>
+<div class="section-background">
+</div>
+</div>
+<div
+class='content-wrapper'
+style='
+'
+>
+<div
+class="content"
+>
+<section 
+id="pdp"
+class="
+products
+collection-content-wrapper
+product-layout-side-by-side
+"
+>
+<article class="ProductItem hentry author-wicin-ta post-type-store-item" data-item-id="65fbbf2044e29218dd8dbfc8">
+<nav class="ProductItem-nav">
+<div class="ProductItem-nav-breadcrumb" data-animation-role="content">
+<a href="/" class="ProductItem-nav-breadcrumb-link">Shop</a>
+<span class="ProductItem-nav-breadcrumb-separator"></span>
+<a href="/shop/p/spring-bowl-rltkk-jy5sr-fjw6l-dp8lg-fbmgj-cs6n2-zpp9a-x7c9k-c68b7-x4fer" class="ProductItem-nav-breadcrumb-link">Rajajudi33 Link Slot Gacor Malam Ini Mudah Menang Anti Rungkat</a>
+</div>
+</nav>
+<section class="ProductItem-summary" data-controller="ProductGallery">
+<section
+aria-label="Gallery"
+class="ProductItem-gallery"
+data-product-gallery="container"
+>
+<div
+class="ProductItem-gallery-slides"
+data-animation-role="image"
+data-product-gallery="slides"
+>
+<div
+class="ProductItem-gallery-slides-item"
+data-slide-index="1"
+data-image-id=65fbc5b0b3f44553dd1f17c1
+data-controller="ImageZoom"
+data-slide-url="qwpkvqx4juohbhfl27jklng9kielb6"
+data-product-gallery="slides-item"
+data-test="pdp-gallery-slide"
+>
 <img
-    class="global-media-settings global-media-settings--no-shadow"
-    srcset="//3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&width=550 550w,//3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971 600w"
-    sizes="(min-width: 750px) calc(100vw - 22rem), 1100px"
-    src="//3dd60a-f6.myshopify.com/cdn/shop/files/sctr-hitam.jpg?v=1710963971&width=1445"
-    alt="Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024"
-    loading="lazy"
-    width="1100"
-    height="1100"
-    data-media-id="33423225913594"
-  ></div>
-  </div>
-</product-modal>
-
-
-    
-<script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/product-modal.js?v=116616134454508949461710963316" defer="defer"></script>
-      <script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/media-gallery.js?v=48911661624497674881710963316" defer="defer"></script><script>
-      document.addEventListener('DOMContentLoaded', function () {
-        function isIE() {
-          const ua = window.navigator.userAgent;
-          const msie = ua.indexOf('MSIE ');
-          const trident = ua.indexOf('Trident/');
-
-          return msie > 0 || trident > 0;
-        }
-
-        if (!isIE()) return;
-        const hiddenInput = document.querySelector('#product-form-template--17631748915450__main input[name="id"]');
-        const noScriptInputWrapper = document.createElement('div');
-        const variantPicker = document.querySelector('variant-selects[data-section="template--17631748915450__main"]');
-        noScriptInputWrapper.innerHTML = document.querySelector(
-          '.product-form__noscript-wrapper-template--17631748915450__main'
-        ).textContent;
-        variantPicker.outerHTML = noScriptInputWrapper.outerHTML;
-
-        document.querySelector('#Variants-template--17631748915450__main').addEventListener('change', function (event) {
-          hiddenInput.value = event.currentTarget.value;
-        });
-      });
-    </script><script type="application/ld+json">
-      {
-        "@context": "http://schema.org/",
-        "@type": "Product",
-        "name": "Rajajudi33 : Agen Slot Gacor Rajajudi33 Resmi Paling Populer Gampang Menang 2024",
-        "url": "https:\/\/3dd60a-f6.myshopify.com\/products\/Rajajudi33",
-        "image": [
-            "https:\/\/3dd60a-f6.myshopify.com\/cdn\/shop\/files\/sctr-hitam.jpg?v=1710963971\u0026width=1920"
-          ],
-        "description": "Rajajudi33 merupakan salah satu rekomendasi situs slot gacor resmi yang paling populer tahun 2024, Rajajudi33 menyediakan game slot online gampang menang malam ini dengan tingkat kemenangan paling tinggi.",
-        
-        "brand": {
-          "@type": "Brand",
-          "name": "My Store"
-        },
-        "offers": [{
-              "@type" : "Offer","availability" : "http://schema.org/OutOfStock",
-              "price" : 0.0,
-              "priceCurrency" : "AUD",
-              "url" : "https:\/\/3dd60a-f6.myshopify.com\/products\/Rajajudi33?variant=45378775974138"
-            }
-]
-      }
-    </script>
-  </div>
-</section>
-
-
-</section><section id="shopify-section-template--17631748915450__related-products" class="shopify-section section"><link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-card.css?v=170127402091165654191710963315" rel="stylesheet" type="text/css" media="all" />
-<link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-price.css?v=70172745017360139101710963316" rel="stylesheet" type="text/css" media="all" />
-<link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/section-related-products.css?v=80324771040738084201710963316" rel="stylesheet" type="text/css" media="all" />
-
-<style data-shopify>.section-template--17631748915450__related-products-padding {
-    padding-top: 27px;
-    padding-bottom: 21px;
-  }
-
-  @media screen and (min-width: 750px) {
-    .section-template--17631748915450__related-products-padding {
-      padding-top: 36px;
-      padding-bottom: 28px;
-    }
-  }</style><div class="color-scheme-1 gradient no-js-hidden">
-  <product-recommendations
-    class="related-products page-width section-template--17631748915450__related-products-padding isolate scroll-trigger animate--slide-in"
-    data-url="/recommendations/products?section_id=template--17631748915450__related-products&product_id=8231701840122&limit=4"
-  >
-    
-  </product-recommendations>
-  </div>
-
-
-</section>
-    </main>
-
-    <!-- BEGIN sections: footer-group -->
-<div id="shopify-section-sections--17631749210362__footer" class="shopify-section shopify-section-group-footer-group">
-<link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/section-footer.css?v=72619989355558646551710963316" rel="stylesheet" type="text/css" media="all" />
-<link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-newsletter.css?v=4727253280200485261710963316" rel="stylesheet" type="text/css" media="all" />
-<link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-list-menu.css?v=151968516119678728991710963315" rel="stylesheet" type="text/css" media="all" />
-<link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-list-payment.css?v=69253961410771838501710963315" rel="stylesheet" type="text/css" media="all" />
-<link href="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/component-list-social.css?v=35792976012981934991710963315" rel="stylesheet" type="text/css" media="all" />
-<style data-shopify>.footer {
-    margin-top: 0px;
-  }
-
-  .section-sections--17631749210362__footer-padding {
-    padding-top: 27px;
-    padding-bottom: 27px;
-  }
-
-  @media screen and (min-width: 750px) {
-    .footer {
-      margin-top: 0px;
-    }
-
-    .section-sections--17631749210362__footer-padding {
-      padding-top: 36px;
-      padding-bottom: 36px;
-    }
-  }</style><footer class="footer color-scheme-1 gradient section-sections--17631749210362__footer-padding"><div class="footer__content-top page-width"><div
-          class="footer-block--newsletter scroll-trigger animate--slide-in"
-          
-            data-cascade
-          
-        ><div class="footer-block__newsletter"><h2 class="footer-block__heading inline-richtext">Subscribe to our emails</h2><form method="post" action="/contact#ContactFooter" id="ContactFooter" accept-charset="UTF-8" class="footer__newsletter newsletter-form"><input type="hidden" name="form_type" value="customer" /><input type="hidden" name="utf8" value="✓" /><input type="hidden" name="contact[tags]" value="newsletter">
-                <div class="newsletter-form__field-wrapper">
-                  <div class="field">
-                    <input
-                      id="NewsletterForm--sections--17631749210362__footer"
-                      type="email"
-                      name="contact[email]"
-                      class="field__input"
-                      value=""
-                      aria-required="true"
-                      autocorrect="off"
-                      autocapitalize="off"
-                      autocomplete="email"
-                      
-                      placeholder="Email"
-                      required
-                    >
-                    <label class="field__label" for="NewsletterForm--sections--17631749210362__footer">
-                      Email
-                    </label>
-                    <button
-                      type="submit"
-                      class="newsletter-form__button field__button"
-                      name="commit"
-                      id="Subscribe"
-                      aria-label="Subscribe"
-                    >
-                      <svg
-  viewBox="0 0 14 10"
-  fill="none"
-  aria-hidden="true"
-  focusable="false"
-  class="icon icon-arrow"
-  xmlns="http://www.w3.org/2000/svg"
+aria-describedby="ProductItem-gallery-slides-item-1-index-65fbc5b0b3f44553dd1f17c1"
+class="ProductItem-gallery-slides-item-image"
+data-load="false"
+data-src="https://images.squarespace-cdn.com/content/v1/65fbbddcf5eb7e7df1a835e8/1710998960765-IY6OR6KFVDPZVUF8KGBH/bg+%289%29.jpeg" data-image="https://images.squarespace-cdn.com/content/v1/65fbbddcf5eb7e7df1a835e8/1710998960765-IY6OR6KFVDPZVUF8KGBH/bg+%289%29.jpeg" data-image-dimensions="600x600" data-image-focal-point="0.5,0.5" alt="bg (9).jpeg" 
+elementtiming="nbf-products-gallery"
+/>
+<span
+id="ProductItem-gallery-slides-item-1-index-65fbc5b0b3f44553dd1f17c1"
+style="display: none;"
 >
-  <path fill-rule="evenodd" clip-rule="evenodd" d="M8.537.808a.5.5 0 01.817-.162l4 4a.5.5 0 010 .708l-4 4a.5.5 0 11-.708-.708L11.793 5.5H1a.5.5 0 010-1h10.793L8.646 1.354a.5.5 0 01-.109-.546z" fill="currentColor">
-</svg>
-
-                    </button>
-                  </div></div></form></div></div>
-      </div><div
-    class="footer__content-bottom scroll-trigger animate--slide-in"
-    
-      data-cascade
-    
-  >
-    <div class="footer__content-bottom-wrapper page-width">
-      <div class="footer__column footer__localization isolate"></div>
-      <div class="footer__column footer__column--info"><div class="footer__payment">
-            <span class="visually-hidden">Payment methods</span>
-            <ul class="list list-payment" role="list"><li class="list-payment__item">
-                  <svg class="icon icon--full-color" viewBox="0 0 38 24" xmlns="http://www.w3.org/2000/svg" width="38" height="24" role="img" aria-labelledby="pi-paypal"><title id="pi-paypal">PayPal</title><path opacity=".07" d="M35 0H3C1.3 0 0 1.3 0 3v18c0 1.7 1.4 3 3 3h32c1.7 0 3-1.3 3-3V3c0-1.7-1.4-3-3-3z"/><path fill="#fff" d="M35 1c1.1 0 2 .9 2 2v18c0 1.1-.9 2-2 2H3c-1.1 0-2-.9-2-2V3c0-1.1.9-2 2-2h32"/><path fill="#003087" d="M23.9 8.3c.2-1 0-1.7-.6-2.3-.6-.7-1.7-1-3.1-1h-4.1c-.3 0-.5.2-.6.5L14 15.6c0 .2.1.4.3.4H17l.4-3.4 1.8-2.2 4.7-2.1z"/><path fill="#3086C8" d="M23.9 8.3l-.2.2c-.5 2.8-2.2 3.8-4.6 3.8H18c-.3 0-.5.2-.6.5l-.6 3.9-.2 1c0 .2.1.4.3.4H19c.3 0 .5-.2.5-.4v-.1l.4-2.4v-.1c0-.2.3-.4.5-.4h.3c2.1 0 3.7-.8 4.1-3.2.2-1 .1-1.8-.4-2.4-.1-.5-.3-.7-.5-.8z"/><path fill="#012169" d="M23.3 8.1c-.1-.1-.2-.1-.3-.1-.1 0-.2 0-.3-.1-.3-.1-.7-.1-1.1-.1h-3c-.1 0-.2 0-.2.1-.2.1-.3.2-.3.4l-.7 4.4v.1c0-.3.3-.5.6-.5h1.3c2.5 0 4.1-1 4.6-3.8v-.2c-.1-.1-.3-.2-.5-.2h-.1z"/></svg>
-                </li></ul>
-          </div></div>
-    </div>
-    <div class="footer__content-bottom-wrapper page-width">
-      <div class="footer__copyright caption">
-        <small class="copyright__content"
-          >&copy; 2024, <a href="/" title="">Rajajudi33</a></small>
-        <small class="copyright__content"><a target="_blank" rel="nofollow" href="https://www.shopify.com?utm_campaign=poweredby&amp;utm_medium=shopify&amp;utm_source=onlinestore">Powered by Shopify</a></small></div>
-    </div>
-  </div>
-</footer>
-
-
+Image 1 of 
+</span>
+<div class="product-image-zoom-duplicate" aria-hidden="true">
+<img data-load="false" data-src="https://images.squarespace-cdn.com/content/v1/65fbbddcf5eb7e7df1a835e8/1710998960765-IY6OR6KFVDPZVUF8KGBH/bg+%289%29.jpeg" data-image="https://images.squarespace-cdn.com/content/v1/65fbbddcf5eb7e7df1a835e8/1710998960765-IY6OR6KFVDPZVUF8KGBH/bg+%289%29.jpeg" data-image-dimensions="600x600" data-image-focal-point="0.5,0.5" alt="bg (9).jpeg"  elementtiming="nbf-products-gallery-zoom" />
 </div>
-<!-- END sections: footer-group -->
-
-    <ul hidden>
-      <li id="a11y-refresh-page-message">Choosing a selection results in a full page refresh.</li>
-      <li id="a11y-new-window-message">Opens in a new window.</li>
-    </ul>
-
-    <script>
-      window.shopUrl = 'https://3dd60a-f6.myshopify.com';
-      window.routes = {
-        cart_add_url: '/cart/add',
-        cart_change_url: '/cart/change',
-        cart_update_url: '/cart/update',
-        cart_url: '/cart',
-        predictive_search_url: '/search/suggest',
-      };
-
-      window.cartStrings = {
-        error: `There was an error while updating your cart. Please try again.`,
-        quantityError: `You can only add [quantity] of this item to your cart.`,
-      };
-
-      window.variantStrings = {
-        addToCart: `Add to cart`,
-        soldOut: `Sold out`,
-        unavailable: `Unavailable`,
-        unavailable_with_option: `[value] - Unavailable`,
-      };
-
-      window.quickOrderListStrings = {
-        itemsAdded: `[quantity] items added`,
-        itemAdded: `[quantity] item added`,
-        itemsRemoved: `[quantity] items removed`,
-        itemRemoved: `[quantity] item removed`,
-        viewCart: `View cart`,
-        each: `[money]/ea`,
-      };
-
-      window.accessibilityStrings = {
-        imageAvailable: `Image [index] is now available in gallery view`,
-        shareSuccess: `Link copied to clipboard`,
-        pauseSlideshow: `Pause slideshow`,
-        playSlideshow: `Play slideshow`,
-        recipientFormExpanded: `Gift card recipient form expanded`,
-        recipientFormCollapsed: `Gift card recipient form collapsed`,
-        countrySelectorSearchCount: `[count] countries/regions found`,
-      };
-    </script><script src="//3dd60a-f6.myshopify.com/cdn/shop/t/1/assets/predictive-search.js?v=162273246065392412141710963316" defer="defer"></script></body>
+</div>
+<div
+class="gallery-lightbox-outer-wrapper"
+data-use-image-loader="true"
+data-controller="Lightbox"
+>
+<div class="gallery-lightbox ">
+<div class="gallery-lightbox-background"></div>
+<div class="gallery-lightbox-header">
+<button class="gallery-lightbox-close-btn" aria-label="Close" data-close data-test="gallery-lightbox-close">
+<div class="gallery-lightbox-close-btn-icon">
+<svg viewBox="0 0 40 40">
+<path d="M4.3,35.7L35.7,4.3"/>
+<path d="M4.3,4.3l31.4,31.4"/>
+</svg>
+</div>
+</button>
+</div>
+<div class="gallery-lightbox-wrapper">
+<div class="gallery-lightbox-list">
+<figure class="gallery-lightbox-item" data-slide-url="qwpkvqx4juohbhfl27jklng9kielb6">
+<div class="gallery-lightbox-item-wrapper">
+<div class="gallery-lightbox-item-src">
+<div class="gallery-lightbox-item-img content-fit">
+<img data-src="https://images.squarespace-cdn.com/content/v1/65fbbddcf5eb7e7df1a835e8/1710998960765-IY6OR6KFVDPZVUF8KGBH/bg+%289%29.jpeg" data-image="https://images.squarespace-cdn.com/content/v1/65fbbddcf5eb7e7df1a835e8/1710998960765-IY6OR6KFVDPZVUF8KGBH/bg+%289%29.jpeg" data-image-dimensions="600x600" data-image-focal-point="0.5,0.5" alt="bg (9).jpeg"  data-load="false" elementtiming="nbf-product-lightbox" />
+</div>
+</div>
+</div>
+</figure>
+</div>
+<div class="gallery-lightbox-controls" data-test="gallery-lightbox-controls">
+<div class="gallery-lightbox-control" data-previous data-test="gallery-lightbox-control-previous">
+<button class="gallery-lightbox-control-btn" aria-label="Previous Slide">
+<div class="gallery-lightbox-control-btn-icon">
+<svg class="caret-left-icon--small" viewBox="0 0 9 16">
+<polyline fill="none" stroke-miterlimit="10" points="7.3,14.7 2.5,8 7.3,1.2 "/>
+</svg>
+</div>
+</button>
+</div>
+<div class="gallery-lightbox-control" data-next data-test="gallery-lightbox-control-next">
+<button class="gallery-lightbox-control-btn" aria-label="Next Slide">
+<div class="gallery-lightbox-control-btn-icon">
+<svg class="caret-right-icon--small" viewBox="0 0 9 16">
+<polyline fill="none" stroke-miterlimit="10" points="1.6,1.2 6.5,7.9 1.6,14.7 "/>
+</svg>
+</div>
+</button>
+</div>
+</div>
+</div>
+</div>
+</div>
+</div>
+</section>
+<section
+class="
+product-details
+ProductItem-details
+"
+data-test="pdp-details"
+>
+<h1
+class="ProductItem-details-title"
+data-content-field="title"
+data-test="pdp-title"
+>
+Rajajudi33 Link Slot Gacor Malam Ini Mudah Menang Anti Rungkat
+</h1>
+<div
+data-controller="ProductItemVariants,ProductCartButton" 
+class="ProductItem-details-checkout"
+>
+<div
+class="ProductItem-product-price"
+data-animation-role="content"
+>
+<div class="product-price">
+IDR 6,969.00
+</div>
+<div data-afterpay="true" data-current-context="{
+&quot;65fbbf2044e29218dd8dbfc8&quot;: {
+&quot;scarcityEnabled&quot;: false,
+&quot;scarcityShownByDefault&quot;: false,
+&quot;afterPayAvailable&quot;: false,
+&quot;klarnaAvailable&quot;: false,
+&quot;shopperLanguage&quot;: &quot;en&quot;,
+&quot;afterPayMin&quot;: 0,
+&quot;afterPayMax&quot;: 0,
+&quot;klarnaMin&quot;: 0,
+&quot;klarnaMax&quot;: 0,
+&quot;mailingListSignUpEnabled&quot;: false,
+&quot;mailingListOptInByDefault&quot;: false
+}
+}"></div>
+<div class="pdp-overlay"></div>
+</div>
+<div
+class="ProductItem-details-excerpt"
+data-content-field="excerpt"
+>
+<p class="" style="white-space:pre-wrap;"><span style="color: rgb(0, 0, 0)">Rajajudi33 adalah link slot gacor malam ini mudah menang anti rungkad terbaik dan terpercaya yang menawarkan berbagai permainan terlengkap gacor.</span></p>
+</div>
+<div class="product-quantity-input" data-item-id="65fbbf2044e29218dd8dbfc8" data-animation-role="content">
+<div class="quantity-label">Quantity:</div>
+<input aria-label="Quantity" size="4" max="9999" min="1" value="1" type="number" step="1"></input>
+</div>
+<div class="sqs-add-to-cart-button-wrapper" data-animation-role="button">
+<div class="sqs-add-to-cart-button sqs-suppress-edit-mode sqs-editable-button sqs-button-element--primary " role="button" tabindex="0" data-dynamic-strings data-collection-id="65fbbf2044e29218dd8dbfc2" data-item-id="65fbbf2044e29218dd8dbfc8" data-product-type="1" data-use-custom-label="false" data-original-label="Add To Cart" >
+<div class="sqs-add-to-cart-button-inner">Add To Cart</div>
+</div>
+</div>
+</div>
+</section>
+</section>
+<section class="ProductItem-additional">
+<div class="sqs-layout sqs-grid-12 columns-12" data-layout-label="Post Body" data-type="item" id="item-65fbbf2044e29218dd8dbfc8"><div class="row sqs-row"><div class="col sqs-col-12 span-12"><div class="sqs-block html-block sqs-block-html" data-block-type="2" data-border-radii="&#123;&quot;topLeft&quot;:&#123;&quot;unit&quot;:&quot;px&quot;,&quot;value&quot;:0.0&#125;,&quot;topRight&quot;:&#123;&quot;unit&quot;:&quot;px&quot;,&quot;value&quot;:0.0&#125;,&quot;bottomLeft&quot;:&#123;&quot;unit&quot;:&quot;px&quot;,&quot;value&quot;:0.0&#125;,&quot;bottomRight&quot;:&#123;&quot;unit&quot;:&quot;px&quot;,&quot;value&quot;:0.0&#125;&#125;" id="block-4b7c0e856873debfdef0"><div class="sqs-block-content">
+<div class="sqs-html-content">
+<p></p>
+</div>
+</div></div></div></div></div>
+</section>
+</article>
+</section>
+</div>
+</div>
+</section>
+</article>
+</main>
+<script type="text/javascript">
+const firstSection = document.querySelector('.page-section');
+const header = document.querySelector('.header');
+const mobileOverlayNav = document.querySelector('.header-menu');
+const sectionBackground = firstSection ? firstSection.querySelector('.section-background') : null;
+const headerHeight = header ? header.getBoundingClientRect().height : 0;
+const firstSectionHasBackground = firstSection ? firstSection.className.indexOf('has-background') >= 0 : false;
+const isFirstSectionInset = firstSection ? firstSection.className.indexOf('background-width--inset') >= 0 : false;
+const isLayoutEngineSection = firstSection ? firstSection.className.indexOf('layout-engine-section') >= 0 : false;
+if (firstSection) {
+firstSection.style.paddingTop = headerHeight + 'px';
+}
+if (sectionBackground && isLayoutEngineSection) {
+if (isFirstSectionInset) {
+sectionBackground.style.top = headerHeight + 'px';
+} else {
+sectionBackground.style.top = '';
+}
+}
+//# sourceURL=headerPositioning.js
+</script>
+<footer class="sections" id="footer-sections" data-footer-sections>
+</footer>
+</div>
+<script defer="defer" src="https://static1.squarespace.com/static/vta/5c5a519771c10ba3470d8101/scripts/site-bundle.ce29d1eeb360947abe611f2b65628374.js" type="text/javascript"></script>
+<svg xmlns="http://www.w3.org/2000/svg" version="1.1" style="display:none" data-usage="social-icons-svg"><symbol id="instagram-unauth-icon" viewBox="0 0 64 64"><path d="M46.91,25.816c-0.073-1.597-0.326-2.687-0.697-3.641c-0.383-0.986-0.896-1.823-1.73-2.657c-0.834-0.834-1.67-1.347-2.657-1.73c-0.954-0.371-2.045-0.624-3.641-0.697C36.585,17.017,36.074,17,32,17s-4.585,0.017-6.184,0.09c-1.597,0.073-2.687,0.326-3.641,0.697c-0.986,0.383-1.823,0.896-2.657,1.73c-0.834,0.834-1.347,1.67-1.73,2.657c-0.371,0.954-0.624,2.045-0.697,3.641C17.017,27.415,17,27.926,17,32c0,4.074,0.017,4.585,0.09,6.184c0.073,1.597,0.326,2.687,0.697,3.641c0.383,0.986,0.896,1.823,1.73,2.657c0.834,0.834,1.67,1.347,2.657,1.73c0.954,0.371,2.045,0.624,3.641,0.697C27.415,46.983,27.926,47,32,47s4.585-0.017,6.184-0.09c1.597-0.073,2.687-0.326,3.641-0.697c0.986-0.383,1.823-0.896,2.657-1.73c0.834-0.834,1.347-1.67,1.73-2.657c0.371-0.954,0.624-2.045,0.697-3.641C46.983,36.585,47,36.074,47,32S46.983,27.415,46.91,25.816z M44.21,38.061c-0.067,1.462-0.311,2.257-0.516,2.785c-0.272,0.7-0.597,1.2-1.122,1.725c-0.525,0.525-1.025,0.85-1.725,1.122c-0.529,0.205-1.323,0.45-2.785,0.516c-1.581,0.072-2.056,0.087-6.061,0.087s-4.48-0.015-6.061-0.087c-1.462-0.067-2.257-0.311-2.785-0.516c-0.7-0.272-1.2-0.597-1.725-1.122c-0.525-0.525-0.85-1.025-1.122-1.725c-0.205-0.529-0.45-1.323-0.516-2.785c-0.072-1.582-0.087-2.056-0.087-6.061s0.015-4.48,0.087-6.061c0.067-1.462,0.311-2.257,0.516-2.785c0.272-0.7,0.597-1.2,1.122-1.725c0.525-0.525,1.025-0.85,1.725-1.122c0.529-0.205,1.323-0.45,2.785-0.516c1.582-0.072,2.056-0.087,6.061-0.087s4.48,0.015,6.061,0.087c1.462,0.067,2.257,0.311,2.785,0.516c0.7,0.272,1.2,0.597,1.725,1.122c0.525,0.525,0.85,1.025,1.122,1.725c0.205,0.529,0.45,1.323,0.516,2.785c0.072,1.582,0.087,2.056,0.087,6.061S44.282,36.48,44.21,38.061z M32,24.297c-4.254,0-7.703,3.449-7.703,7.703c0,4.254,3.449,7.703,7.703,7.703c4.254,0,7.703-3.449,7.703-7.703C39.703,27.746,36.254,24.297,32,24.297z M32,37c-2.761,0-5-2.239-5-5c0-2.761,2.239-5,5-5s5,2.239,5,5C37,34.761,34.761,37,32,37z M40.007,22.193c-0.994,0-1.8,0.806-1.8,1.8c0,0.994,0.806,1.8,1.8,1.8c0.994,0,1.8-0.806,1.8-1.8C41.807,22.999,41.001,22.193,40.007,22.193z"/></symbol><symbol id="instagram-unauth-mask" viewBox="0 0 64 64"><path d="M43.693,23.153c-0.272-0.7-0.597-1.2-1.122-1.725c-0.525-0.525-1.025-0.85-1.725-1.122c-0.529-0.205-1.323-0.45-2.785-0.517c-1.582-0.072-2.056-0.087-6.061-0.087s-4.48,0.015-6.061,0.087c-1.462,0.067-2.257,0.311-2.785,0.517c-0.7,0.272-1.2,0.597-1.725,1.122c-0.525,0.525-0.85,1.025-1.122,1.725c-0.205,0.529-0.45,1.323-0.516,2.785c-0.072,1.582-0.087,2.056-0.087,6.061s0.015,4.48,0.087,6.061c0.067,1.462,0.311,2.257,0.516,2.785c0.272,0.7,0.597,1.2,1.122,1.725s1.025,0.85,1.725,1.122c0.529,0.205,1.323,0.45,2.785,0.516c1.581,0.072,2.056,0.087,6.061,0.087s4.48-0.015,6.061-0.087c1.462-0.067,2.257-0.311,2.785-0.516c0.7-0.272,1.2-0.597,1.725-1.122s0.85-1.025,1.122-1.725c0.205-0.529,0.45-1.323,0.516-2.785c0.072-1.582,0.087-2.056,0.087-6.061s-0.015-4.48-0.087-6.061C44.143,24.476,43.899,23.682,43.693,23.153z M32,39.703c-4.254,0-7.703-3.449-7.703-7.703s3.449-7.703,7.703-7.703s7.703,3.449,7.703,7.703S36.254,39.703,32,39.703z M40.007,25.793c-0.994,0-1.8-0.806-1.8-1.8c0-0.994,0.806-1.8,1.8-1.8c0.994,0,1.8,0.806,1.8,1.8C41.807,24.987,41.001,25.793,40.007,25.793z M0,0v64h64V0H0z M46.91,38.184c-0.073,1.597-0.326,2.687-0.697,3.641c-0.383,0.986-0.896,1.823-1.73,2.657c-0.834,0.834-1.67,1.347-2.657,1.73c-0.954,0.371-2.044,0.624-3.641,0.697C36.585,46.983,36.074,47,32,47s-4.585-0.017-6.184-0.09c-1.597-0.073-2.687-0.326-3.641-0.697c-0.986-0.383-1.823-0.896-2.657-1.73c-0.834-0.834-1.347-1.67-1.73-2.657c-0.371-0.954-0.624-2.044-0.697-3.641C17.017,36.585,17,36.074,17,32c0-4.074,0.017-4.585,0.09-6.185c0.073-1.597,0.326-2.687,0.697-3.641c0.383-0.986,0.896-1.823,1.73-2.657c0.834-0.834,1.67-1.347,2.657-1.73c0.954-0.371,2.045-0.624,3.641-0.697C27.415,17.017,27.926,17,32,17s4.585,0.017,6.184,0.09c1.597,0.073,2.687,0.326,3.641,0.697c0.986,0.383,1.823,0.896,2.657,1.73c0.834,0.834,1.347,1.67,1.73,2.657c0.371,0.954,0.624,2.044,0.697,3.641C46.983,27.415,47,27.926,47,32C47,36.074,46.983,36.585,46.91,38.184z M32,27c-2.761,0-5,2.239-5,5s2.239,5,5,5s5-2.239,5-5S34.761,27,32,27z"/></symbol></svg>
+</body>
 </html>
